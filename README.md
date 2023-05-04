@@ -6,6 +6,19 @@
 
 ![image](https://placekeanu.com/500/300?)
 
+## Contact
+[Telegram](https://t.me/bxdoan)
+
+[Email](mailto:hi@bxdoan.com)
+
+## Buy me a coffee
+
+[bxdoan.eth](https://etherscan.io/address/0x610322AeF748238C52E920a15Dd9A8845C9c0318)
+
+or
+
+[![paypal](https://www.paypalobjects.com/en_US/i/btn/btn_donateCC_LG.gif)](https://paypal.me/bxdoan)
+
 <!--
 **bxdoan/bxdoan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
