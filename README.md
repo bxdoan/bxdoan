@@ -17,12 +17,10 @@
 [![bxdoan.eth](https://img.shields.io/badge/Ethereum-3C3C3D?style=for-the-badge&logo=Ethereum&logoColor=white)](https://etherscan.io/address/0x610322AeF748238C52E920a15Dd9A8845C9c0318)
 [![paypal](	https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/bxdoan)
 
-![momo](imgs/momo.svg) 
-
-`0904195065`
+![momo](imgs/momo.svg) `0904195065`
 
 <!-- Set both width and height -->
-<img src="imgs/vpbank.svg" width="150" height="75">
+<img src="imgs/vpbank.svg" width="150" height="75"> 
 
 `0904195065` (Vietnamese Bank)
 
