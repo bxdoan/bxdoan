@@ -21,7 +21,8 @@
 
 `0904195065`
 
-![VPBank](imgs/vpbank.svg)
+<!-- Set both width and height -->
+<img src="imgs/vpbank.svg" width="150" height="75">
 
 `0904195065` (Vietnamese Bank)
 
