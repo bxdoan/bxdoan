@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best time to plant a tree was 20 years ago. The second best time is now.
+> The mind is everything. What you think you become.
 
-> — Chinese Proverb
+> — Buddha
 
 </div>
 
