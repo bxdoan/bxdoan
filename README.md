@@ -1,8 +1,8 @@
 <div align="center">
 
-> We become what we think about.
+> Life is what we make it, always has been, always will be.
 
-> — Earl Nightingale
+> — Grandma Moses
 
 </div>
 
