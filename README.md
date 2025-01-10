@@ -1,8 +1,8 @@
 <div align="center">
 
-> As Long As We Continue To Fight We Are Not Defeated
+> We become what we think about.
 
-> — Miche Zacharius
+> — Earl Nightingale
 
 </div>
 
