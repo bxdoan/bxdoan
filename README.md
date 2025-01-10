@@ -1,8 +1,8 @@
 <div align="center">
 
-> The mind is everything. What you think you become.
+> As Long As We Continue To Fight We Are Not Defeated
 
-> — Buddha
+> — Miche Zacharius
 
 </div>
 
