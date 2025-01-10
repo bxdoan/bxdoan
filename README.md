@@ -1,8 +1,8 @@
 <div align="center">
 
-> It does not matter how slowly you go as long as you do not stop.
+> The best time to plant a tree was 20 years ago. The second best time is now.
 
-> — Confucius
+> — Chinese Proverb
 
 </div>
 
