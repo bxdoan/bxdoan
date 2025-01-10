@@ -1,8 +1,8 @@
 <div align="center">
 
-> If You Win You Live If You Lose You Die If You Don t Fight You Can t Win
+> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
 
-> — Eren
+> — Seiya Kanie
 
 </div>
 
