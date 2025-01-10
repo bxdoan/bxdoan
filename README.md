@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
 
-> — Grandma Moses
+> — Sheryl Sandberg
 
 </div>
 
