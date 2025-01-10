@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
+> First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end.
 
-> — Seiya Kanie
+> — Aristotle
 
 </div>
 
