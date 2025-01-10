@@ -6,12 +6,6 @@
 
 </div>
 
-
-</div>
-
-
-</div>
-
 ![](https://img.shields.io/badge/dynamic/json?logo=github&label=GitHub%20Stars&style=for-the-badge&query=%24.stars&url=https://api.github-star-counter.workers.dev/user/bxdoan)
 ![](https://img.shields.io/badge/dynamic/json?logo=github&label=GitHub%20Forks&style=for-the-badge&query=%24.forks&url=https://api.github-star-counter.workers.dev/user/bxdoan)
 ![counter](https://en38niz0qgffe70.m.pipedream.net/)

@@ -27,7 +27,7 @@ printf "</div>\n\n" >> "$temp_file"
 
 # Append rest of README.md content (if any) after line 5
 if [ -f README.md ]; then
-    tail -n +6 README.md >> "$temp_file"
+    tail -n +8 README.md >> "$temp_file"
 fi
 
 # Replace original file with temp file
