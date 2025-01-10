@@ -6,7 +6,8 @@ on:
 
   schedule:
     # - cron: '0 */12 * * *' # Executes every 12 hours
-    - cron: '*/1 * * * *' # Executes every 1 minute
+    # Executes every 5 minute
+    - cron: '*/2 * * * *' 
 
   workflow_dispatch: # Allows manual triggering from the GitHub UI
 
