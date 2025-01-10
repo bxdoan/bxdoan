@@ -28,9 +28,8 @@ I love Roll Royce, if you love Roll Royce also, help me buy it.
 ![momo](imgs/momo.svg) `0904195065`
 
 <!-- Set both width and height -->
-<img src="imgs/vpbank.svg" width="150" height="75"> 
+<img src="https://img.vietqr.io/image/MB-0904195065-print.png" width="300" height="380"> 
 
-`0904195065` (Vietnamese Bank)
 
 
 <!--
