@@ -25,9 +25,9 @@ printf "> %s\n\n" "$quote" >> "$temp_file"
 printf "> — %s\n\n" "$author" >> "$temp_file"
 printf "</div>\n\n" >> "$temp_file"
 
-# Append rest of README.md content (if any) after line 5
+# Append rest of README.md content (if any) after line 8
 if [ -f README.md ]; then
-    tail -n +8 README.md >> "$temp_file"
+    tail -n +9 README.md >> "$temp_file"
 fi
 
 # Replace original file with temp file
