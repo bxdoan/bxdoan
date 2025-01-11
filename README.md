@@ -1,8 +1,8 @@
 <div align="center">
 
-> Remember that not getting what you want is sometimes a wonderful stroke of luck.
+> Simplicity is the easiest path to true beauty.
 
-> — Dalai Lama
+> — Seishuu Handa
 
 </div>
 
