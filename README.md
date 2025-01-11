@@ -1,8 +1,8 @@
 <div align="center">
 
-> Believe you can and you're halfway there.
+> It’s not the years in your life that count. It’s the life in your years.
 
-> — Theodore Roosevelt
+> — Abraham Lincoln —
 
 </div>
 
