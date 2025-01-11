@@ -1,8 +1,8 @@
 <div align="center">
 
-> There’s no shame in falling down! True shame is to not stand up again!
+> Hard work is worthless for those that don’t believe in themselves.
 
-> — Shintar Midorima —
+> — Naruto Uzumaki —
 
 </div>
 
