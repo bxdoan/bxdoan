@@ -1,8 +1,8 @@
 <div align="center">
 
-> Simplicity is the easiest path to true beauty.
+> Believe you can and you're halfway there.
 
-> — Seishuu Handa
+> — Theodore Roosevelt
 
 </div>
 
