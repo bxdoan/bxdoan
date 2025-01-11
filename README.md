@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hard work is worthless for those that don’t believe in themselves.
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Naruto Uzumaki —
+> — Juuzou Suzuya —
 
 </div>
 
