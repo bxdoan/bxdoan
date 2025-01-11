@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not the years in your life that count. It’s the life in your years.
+> There’s no shame in falling down! True shame is to not stand up again!
 
-> — Abraham Lincoln —
+> — Shintar Midorima —
 
 </div>
 
