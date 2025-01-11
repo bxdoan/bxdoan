@@ -6,17 +6,15 @@
 
 </div>
 
-![](https://img.shields.io/badge/dynamic/json?logo=github&label=GitHub%20Stars&style=for-the-badge&query=%24.stars&url=https://api.github-star-counter.workers.dev/user/bxdoan)
-![](https://img.shields.io/badge/dynamic/json?logo=github&label=GitHub%20Forks&style=for-the-badge&query=%24.forks&url=https://api.github-star-counter.workers.dev/user/bxdoan)
-![counter](https://en38niz0qgffe70.m.pipedream.net/)
-
 ![image](https://placekeanu.com/500/300?)
+
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=bxdoan&show_icons=true&theme=radical)
 
 ## Contact
 
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/bxdoan)
 [![Twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white)](https://twitter.com/bxdoan)
-[![Email](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:hi@bxdoan.com)
+[![Email](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:bxdoan93@gmail.com)
 
 ## Buy me a Roll Royce
 

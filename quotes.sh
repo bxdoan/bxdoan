@@ -22,7 +22,7 @@ temp_file=$(mktemp)
 # Calculate padding for center alignment (assuming 80 characters width)
 printf "<div align=\"center\">\n\n" > "$temp_file"
 printf "> %s\n\n" "$quote" >> "$temp_file"
-printf "> — %s\n\n" "$author" >> "$temp_file"
+printf "> — %s\n\n" "$author —" >> "$temp_file"
 printf "</div>\n\n" >> "$temp_file"
 
 # Append rest of README.md content (if any) after line 8
