@@ -1,8 +1,8 @@
 <div align="center">
 
-> I attribute my success to this: I never gave or took any excuse.
+> I’ll leave tomorrow’s problems to tomorrow’s me.
 
-> — Florence Nightingale —
+> — Saitama —
 
 </div>
 
