@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever the mind of man can conceive and believe, it can achieve.
+> Either write something worth reading or do something worth writing.
 
-> — Napoleon Hill —
+> — Benjamin Franklin —
 
 </div>
 
