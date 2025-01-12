@@ -1,8 +1,8 @@
 <div align="center">
 
-> Either write something worth reading or do something worth writing.
+> The most difficult thing is the decision to act, the rest is merely tenacity.
 
-> — Benjamin Franklin —
+> — Amelia Earhart —
 
 </div>
 
