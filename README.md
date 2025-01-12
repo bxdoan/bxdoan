@@ -1,8 +1,8 @@
 <div align="center">
 
-> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — Juuzou Suzuya —
+> — Napoleon Hill —
 
 </div>
 
