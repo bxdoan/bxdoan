@@ -1,8 +1,8 @@
 <div align="center">
 
-> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
+> I attribute my success to this: I never gave or took any excuse.
 
-> — Mavis Vermillion —
+> — Florence Nightingale —
 
 </div>
 
