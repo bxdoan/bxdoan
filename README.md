@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
 
-> — Amelia Earhart —
+> — Mavis Vermillion —
 
 </div>
 
