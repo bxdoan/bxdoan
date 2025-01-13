@@ -1,8 +1,8 @@
 <div align="center">
 
-> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least
+> A dropout will beat a genius through hard work.
 
-> — Levi Ackerman —
+> — Rock Lee —
 
 </div>
 
