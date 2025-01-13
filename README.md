@@ -1,8 +1,8 @@
 <div align="center">
 
-> I’ll leave tomorrow’s problems to tomorrow’s me.
+> Too many of us are not living our dreams because we are living our fears.
 
-> — Saitama —
+> — Les Brown —
 
 </div>
 
