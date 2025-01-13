@@ -1,8 +1,8 @@
 <div align="center">
 
-> Too many of us are not living our dreams because we are living our fears.
+> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least
 
-> — Les Brown —
+> — Levi Ackerman —
 
 </div>
 
