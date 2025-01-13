@@ -1,8 +1,8 @@
 <div align="center">
 
-> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least
+> Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.
 
-> — Levi Ackerman —
+> — Jamie Paolinetti —
 
 </div>
 
