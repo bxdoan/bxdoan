@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life s a bore if you don t challenge yourself
+> I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
 
-> — Yuu Nishinoya —
+> — Leonardo da Vinci —
 
 </div>
 
