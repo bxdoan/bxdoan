@@ -1,8 +1,8 @@
 <div align="center">
 
-> I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
+> Dreaming, after all, is a form of planning.
 
-> — Leonardo da Vinci —
+> — Gloria Steinem —
 
 </div>
 
