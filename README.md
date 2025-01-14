@@ -1,8 +1,8 @@
 <div align="center">
 
-> I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you!
+> Life s a bore if you don t challenge yourself
 
-> — Son Goku —
+> — Yuu Nishinoya —
 
 </div>
 
