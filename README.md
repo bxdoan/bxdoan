@@ -1,8 +1,8 @@
 <div align="center">
 
-> I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person
+> Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.
 
-> — Armin Arlert —
+> — Johann Wolfgang von Goethe —
 
 </div>
 
