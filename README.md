@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.
+> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
 
-> — Johann Wolfgang von Goethe —
+> — Booker T. Washington —
 
 </div>
 
