@@ -1,8 +1,8 @@
 <div align="center">
 
-> Nothing is impossible, the word itself says, “I’m possible!”
+> Being weak means that there is room to grow
 
-> — –Audrey Hepburn —
+> — Ittetsu Takeda —
 
 </div>
 
