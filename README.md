@@ -1,8 +1,8 @@
 <div align="center">
 
-> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Booker T. Washington —
+> — Henry David Thoreau —
 
 </div>
 
