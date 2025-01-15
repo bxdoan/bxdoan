@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> — Henry David Thoreau —
+> — Hange Zoë —
 
 </div>
 
