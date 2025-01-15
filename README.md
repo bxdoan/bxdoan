@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak means that there is room to grow
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — Ittetsu Takeda —
+> — Unknown —
 
 </div>
 
