@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every journey begins with a single step. We just have to have patience.
+> I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person
 
-> — Milly Thompson —
+> — Armin Arlert —
 
 </div>
 
