@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
+> Every journey begins with a single step. We just have to have patience.
 
-> — Kenshin Himura —
+> — Milly Thompson —
 
 </div>
 
