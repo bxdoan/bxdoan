@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
+> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
 
-> — Unknown —
+> — Kenshin Himura —
 
 </div>
 
