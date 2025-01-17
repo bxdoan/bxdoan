@@ -1,8 +1,8 @@
 <div align="center">
 
-> I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person
+> Everything has beauty, but not everyone can see.
 
-> — Armin Arlert —
+> — Confucius —
 
 </div>
 
