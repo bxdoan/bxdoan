@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything has beauty, but not everyone can see.
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Confucius —
+> — Juuzou Suzuya —
 
 </div>
 
