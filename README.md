@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
+> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
 
-> — Gildarts Clive —
+> — Ann Landers —
 
 </div>
 
