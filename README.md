@@ -1,8 +1,8 @@
 <div align="center">
 
-> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
+> There are some flowers you only see when you take detours
 
-> — Tobio Kageyama —
+> — Tanaka Saeko —
 
 </div>
 
