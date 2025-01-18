@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-Hi, I'm Doan. I'm current open to work and find a full remote job. Here is my online [resume](https://bxdoan.github.io/resume/). Contact me if my skill match your job.
+Hi, I'm Doan. I'm current open to work and find a fulltime remote job. Here is my online [resume](https://bxdoan.github.io/resume/). Contact me if my skill match your job.
 
 ![image](https://placekeanu.com/500/300?)
 
