@@ -15,6 +15,7 @@ Hi, I'm Doan. I'm current open to work and find a full time remote job. Here is 
 ![bxdoan's GitHub stats](https://github-readme-stats.vercel.app/api?username=bxdoan&show_icons=true&theme=radical)
 
 </div>
+
 ## Contact
 
 <div align="center">
@@ -26,6 +27,7 @@ Hi, I'm Doan. I'm current open to work and find a full time remote job. Here is 
 [![Mobile](https://img.shields.io/badge/Mobile-0077B5?style=for-the-badge&logo=mobile&logoColor=white)](tel:0904195065)
 
 </div>
+
 ## Buy me a Roll Royce
 
 I love Roll Royce, if you love Roll Royce also, help me buy it.
