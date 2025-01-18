@@ -1,8 +1,8 @@
 <div align="center">
 
-> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
+> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
 
-> — Juuzou Suzuya —
+> — Yuuji Kazami —
 
 </div>
 
