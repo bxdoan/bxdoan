@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
+> A truly rich man is one whose children run into his arms when his hands are empty.
 
-> — Ann Landers —
+> — Unknown —
 
 </div>
 
