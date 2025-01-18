@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> I didn’t fail the test. I just found 100 ways to do it wrong.
 
-> — Amelia Earhart —
+> — Benjamin Franklin —
 
 </div>
 
