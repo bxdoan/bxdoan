@@ -1,8 +1,8 @@
 <div align="center">
 
-> I didn’t fail the test. I just found 100 ways to do it wrong.
+> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
 
-> — Benjamin Franklin —
+> — Gildarts Clive —
 
 </div>
 
