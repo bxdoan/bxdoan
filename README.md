@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
 
-> — Yuuji Kazami —
+> — Tobio Kageyama —
 
 </div>
 
