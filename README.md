@@ -1,8 +1,8 @@
 <div align="center">
 
-> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — Booker T. Washington —
+> — Unknown —
 
 </div>
 
