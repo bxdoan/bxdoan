@@ -1,8 +1,8 @@
 <div align="center">
 
-> A truly rich man is one whose children run into his arms when his hands are empty.
+> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
 
-> — Unknown —
+> — Booker T. Washington —
 
 </div>
 
