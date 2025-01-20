@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is at the moment of death that humanity has value.
+> You can’t always hold on to the things that are important. By letting them go we gain something else.
 
-> — Archer —
+> — Kunio Yaobi —
 
 </div>
 
