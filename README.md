@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t always hold on to the things that are important. By letting them go we gain something else.
+> It is never too late to be what you might have been.
 
-> — Kunio Yaobi —
+> — George Eliot —
 
 </div>
 
