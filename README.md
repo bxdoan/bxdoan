@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is never too late to be what you might have been.
+> There are no traffic jams along the extra mile.
 
-> — George Eliot —
+> — Roger Staubach —
 
 </div>
 
