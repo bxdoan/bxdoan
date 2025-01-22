@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no traffic jams along the extra mile.
+> We become what we think about.
 
-> — Roger Staubach —
+> — Earl Nightingale —
 
 </div>
 
