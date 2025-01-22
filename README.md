@@ -1,8 +1,8 @@
 <div align="center">
 
-> We become what we think about.
+> Fall seven times and stand up eight.
 
-> — Earl Nightingale —
+> — Japanese Proverb —
 
 </div>
 
