@@ -1,8 +1,8 @@
 <div align="center">
 
-> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
+> The most difficult thing is the decision to act, the rest is merely tenacity.
 
-> — Jesus —
+> — Amelia Earhart —
 
 </div>
 
