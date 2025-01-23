@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
 
-> — Japanese Proverb —
+> — Jesus —
 
 </div>
 
