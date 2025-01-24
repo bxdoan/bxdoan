@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> A dropout will beat a genius through hard work.
 
-> — Amelia Earhart —
+> — Rock Lee —
 
 </div>
 
