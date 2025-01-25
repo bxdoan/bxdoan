@@ -1,8 +1,8 @@
 <div align="center">
 
-> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
+> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
 
-> — Aristotle —
+> — Erza Scarlet —
 
 </div>
 
