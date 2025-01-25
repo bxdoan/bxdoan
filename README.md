@@ -1,8 +1,8 @@
 <div align="center">
 
-> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
+> It is never too late to be what you might have been.
 
-> — Erza Scarlet —
+> — George Eliot —
 
 </div>
 
