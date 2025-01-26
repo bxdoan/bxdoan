@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is never too late to be what you might have been.
+> If you want to lift yourself up, lift up someone else.
 
-> — George Eliot —
+> — Booker T. Washington —
 
 </div>
 
