@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want to lift yourself up, lift up someone else.
+> We must balance conspicuous consumption with conscious capitalism.
 
-> — Booker T. Washington —
+> — Kevin Kruse —
 
 </div>
 
