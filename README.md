@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must balance conspicuous consumption with conscious capitalism.
+> All we can do is live until the day we die. Control what we can…and fly free.
 
-> — Kevin Kruse —
+> — Deneil Young —
 
 </div>
 
