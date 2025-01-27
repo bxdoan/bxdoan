@@ -1,8 +1,8 @@
 <div align="center">
 
-> All we can do is live until the day we die. Control what we can…and fly free.
+> The most difficult thing is the decision to act, the rest is merely tenacity.
 
-> — Deneil Young —
+> — Amelia Earhart —
 
 </div>
 
