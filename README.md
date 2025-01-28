@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> Hard work is worthless for those that don’t believe in themselves.
 
-> — Amelia Earhart —
+> — Naruto Uzumaki —
 
 </div>
 
