@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hard work is worthless for those that don’t believe in themselves.
+> Challenges are what make life interesting and overcoming them is what makes life meaningful.
 
-> — Naruto Uzumaki —
+> — Joshua J. Marine —
 
 </div>
 
