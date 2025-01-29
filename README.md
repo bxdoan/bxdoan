@@ -1,8 +1,8 @@
 <div align="center">
 
-> Challenges are what make life interesting and overcoming them is what makes life meaningful.
+> To act is not necessarily compassion. True compassion sometimes comes from inaction.
 
-> — Joshua J. Marine —
+> — Hinata Miyake —
 
 </div>
 
