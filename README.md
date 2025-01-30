@@ -1,8 +1,8 @@
 <div align="center">
 
-> You may be disappointed if you fail, but you are doomed if you don’t try.
+> You can die anytime, but living takes true courage.
 
-> — Beverly Sills —
+> — Kenshin Himura —
 
 </div>
 
