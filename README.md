@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
 
-> — Japanese Proverb —
+> — Erza Scarlet —
 
 </div>
 
