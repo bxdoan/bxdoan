@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can die anytime, but living takes true courage.
+> Fall seven times and stand up eight.
 
-> — Kenshin Himura —
+> — Japanese Proverb —
 
 </div>
 
