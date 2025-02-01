@@ -1,8 +1,8 @@
 <div align="center">
 
-> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
+> If you just submit yourself to fate, then that’s the end of it.
 
-> — Erza Scarlet —
+> — Keiichi Maebara —
 
 </div>
 
