@@ -1,8 +1,8 @@
 <div align="center">
 
-> We become what we think about.
+> Being lonely is more painful then getting hurt.
 
-> — Earl Nightingale —
+> — Monkey D Luffy —
 
 </div>
 
