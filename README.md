@@ -1,8 +1,8 @@
 <div align="center">
 
-> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
+> We become what we think about.
 
-> — Miss Kobayashi —
+> — Earl Nightingale —
 
 </div>
 
