@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being lonely is more painful then getting hurt.
+> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
 
-> — Monkey D Luffy —
+> — Seiya Kanie —
 
 </div>
 
