@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Seiya Kanie —
+> — Tony Robbins —
 
 </div>
 
