@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> Sometimes it’s necessary to do unnecessary things.
 
-> — Tony Robbins —
+> — Kanade Jinguuji —
 
 </div>
 
