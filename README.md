@@ -1,8 +1,8 @@
 <div align="center">
 
-> Sometimes it’s necessary to do unnecessary things.
+> It’s not the years in your life that count. It’s the life in your years.
 
-> — Kanade Jinguuji —
+> — Abraham Lincoln —
 
 </div>
 
