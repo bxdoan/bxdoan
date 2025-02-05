@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not the years in your life that count. It’s the life in your years.
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Abraham Lincoln —
+> — Alibaba Saluja —
 
 </div>
 
