@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!
 
-> — Tony Robbins —
+> — Haruhi Fujioka —
 
 </div>
 
