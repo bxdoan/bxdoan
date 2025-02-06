@@ -1,8 +1,8 @@
 <div align="center">
 
-> The question isn’t who is going to let me; it’s who is going to stop me.
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Ayn Rand —
+> — Tony Robbins —
 
 </div>
 
