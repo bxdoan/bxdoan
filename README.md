@@ -1,8 +1,8 @@
 <div align="center">
 
-> Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it.
+> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
 
-> — Kyousuke Natsume —
+> — Matsumoto Rangiku —
 
 </div>
 
