@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!
+> Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it.
 
-> — Haruhi Fujioka —
+> — Kyousuke Natsume —
 
 </div>
 
