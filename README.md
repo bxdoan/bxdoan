@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> Remember no one can make you feel inferior without your consent.
 
-> — Matsumoto Rangiku —
+> — Eleanor Roosevelt —
 
 </div>
 
