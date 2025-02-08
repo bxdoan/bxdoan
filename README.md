@@ -1,8 +1,8 @@
 <div align="center">
 
-> Remember no one can make you feel inferior without your consent.
+> Strive not to be a success, but rather to be of value.
 
-> — Eleanor Roosevelt —
+> — Albert Einstein —
 
 </div>
 
