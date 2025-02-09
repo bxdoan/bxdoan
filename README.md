@@ -1,8 +1,8 @@
 <div align="center">
 
-> Strive not to be a success, but rather to be of value.
+> If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be.
 
-> — Albert Einstein —
+> — Naruto Uzumaki —
 
 </div>
 
