@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be.
+> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
 
-> — Naruto Uzumaki —
+> — Maya Angelou —
 
 </div>
 
