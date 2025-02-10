@@ -1,8 +1,8 @@
 <div align="center">
 
-> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
+> Happiness is not something readymade.  It comes from your own actions.
 
-> — Maya Angelou —
+> — Dalai Lama —
 
 </div>
 
