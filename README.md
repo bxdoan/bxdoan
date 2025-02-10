@@ -1,8 +1,8 @@
 <div align="center">
 
-> Happiness is not something readymade.  It comes from your own actions.
+> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
 
-> — Dalai Lama —
+> — Henry Ford —
 
 </div>
 
