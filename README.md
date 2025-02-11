@@ -1,8 +1,8 @@
 <div align="center">
 
-> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
+> Dream big and dare to fail.
 
-> — Henry Ford —
+> — Norman Vaughan —
 
 </div>
 
