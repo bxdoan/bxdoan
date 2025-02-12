@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt.
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Grimsley —
+> — Zig Ziglar —
 
 </div>
 
