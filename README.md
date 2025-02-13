@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> Do you need a reason to not want to lose
 
-> — Zig Ziglar —
+> — Shoyo Hinata —
 
 </div>
 
