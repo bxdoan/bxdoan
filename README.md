@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do you need a reason to not want to lose
+> The most difficult thing is the decision to act, the rest is merely tenacity.
 
-> — Shoyo Hinata —
+> — Amelia Earhart —
 
 </div>
 
