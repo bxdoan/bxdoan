@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
 
-> — Amelia Earhart —
+> — Sebastian Michaelis —
 
 </div>
 
