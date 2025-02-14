@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
+> Life shrinks or expands in proportion to one’s courage.
 
-> — Sebastian Michaelis —
+> — Anais Nin —
 
 </div>
 
