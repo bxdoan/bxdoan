@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life shrinks or expands in proportion to one’s courage.
+> Too many of us are not living our dreams because we are living our fears.
 
-> — Anais Nin —
+> — Les Brown —
 
 </div>
 
