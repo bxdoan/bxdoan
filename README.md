@@ -1,8 +1,8 @@
 <div align="center">
 
-> Too many of us are not living our dreams because we are living our fears.
+> I attribute my success to this: I never gave or took any excuse.
 
-> — Les Brown —
+> — Florence Nightingale —
 
 </div>
 
