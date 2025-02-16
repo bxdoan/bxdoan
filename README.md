@@ -1,8 +1,8 @@
 <div align="center">
 
-> I attribute my success to this: I never gave or took any excuse.
+> If you want to lift yourself up, lift up someone else.
 
-> — Florence Nightingale —
+> — Booker T. Washington —
 
 </div>
 
