@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want to lift yourself up, lift up someone else.
+> People become stronger because they have memories they can’t forget.
 
-> — Booker T. Washington —
+> — Tsunade —
 
 </div>
 
