@@ -1,8 +1,8 @@
 <div align="center">
 
-> I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Armin Arlert —
+> — Zig Ziglar —
 
 </div>
 
