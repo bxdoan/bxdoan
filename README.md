@@ -1,8 +1,8 @@
 <div align="center">
 
-> People become stronger because they have memories they can’t forget.
+> I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person
 
-> — Tsunade —
+> — Armin Arlert —
 
 </div>
 
