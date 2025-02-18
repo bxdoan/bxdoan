@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> Believe you can and you're halfway there.
 
-> — Zig Ziglar —
+> — Theodore Roosevelt —
 
 </div>
 
