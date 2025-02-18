@@ -1,8 +1,8 @@
 <div align="center">
 
-> Believe you can and you're halfway there.
+> Success usually comes to those who are too busy to be looking for it.
 
-> — Theodore Roosevelt —
+> — Henry David Thoreau —
 
 </div>
 
