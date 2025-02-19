@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Every strike brings me closer to the next home run.
 
-> — Zig Ziglar —
+> — Babe Ruth —
 
 </div>
 
