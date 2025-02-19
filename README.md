@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success usually comes to those who are too busy to be looking for it.
+> If you can dream it, you can achieve it.
 
-> — Henry David Thoreau —
+> — Zig Ziglar —
 
 </div>
 
