@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every strike brings me closer to the next home run.
+> We can’t waste time worrying about the what if’s.
 
-> — Babe Ruth —
+> — Ichigo Kurosaki —
 
 </div>
 
