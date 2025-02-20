@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t waste time worrying about the what if’s.
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Ichigo Kurosaki —
+> — Zig Ziglar —
 
 </div>
 
