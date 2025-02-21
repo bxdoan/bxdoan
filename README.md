@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
 
-> — Zig Ziglar —
+> — Might Guy —
 
 </div>
 
