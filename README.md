@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
+> Being weak is nothing to be ashamed of… Staying weak is !!
 
-> — Might Guy —
+> — Fuegoleon Vermillion —
 
 </div>
 
