@@ -1,8 +1,8 @@
 <div align="center">
 
-> To act is not necessarily compassion. True compassion sometimes comes from inaction.
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Hinata Miyake —
+> — Zig Ziglar —
 
 </div>
 
