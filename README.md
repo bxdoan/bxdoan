@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak is nothing to be ashamed of… Staying weak is !!
+> To act is not necessarily compassion. True compassion sometimes comes from inaction.
 
-> — Fuegoleon Vermillion —
+> — Hinata Miyake —
 
 </div>
 
