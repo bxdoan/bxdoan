@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> Simplicity is the easiest path to true beauty.
 
-> — Zig Ziglar —
+> — Seishuu Handa —
 
 </div>
 
