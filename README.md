@@ -1,8 +1,8 @@
 <div align="center">
 
-> Simplicity is the easiest path to true beauty.
+> The future belongs to those who believe in the beauty of their dreams.
 
-> — Seishuu Handa —
+> — Eleanor Roosevelt —
 
 </div>
 
