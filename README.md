@@ -1,8 +1,8 @@
 <div align="center">
 
-> The future belongs to those who believe in the beauty of their dreams.
+> Success usually comes to those who are too busy to be looking for it.
 
-> — Eleanor Roosevelt —
+> — Henry David Thoreau —
 
 </div>
 
