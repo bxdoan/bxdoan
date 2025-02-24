@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success usually comes to those who are too busy to be looking for it.
+> I didn’t fail the test. I just found 100 ways to do it wrong.
 
-> — Henry David Thoreau —
+> — Benjamin Franklin —
 
 </div>
 
