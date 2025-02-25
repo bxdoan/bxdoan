@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
+> Life is not a game of luck. If you wanna win, work hard.
 
-> — Kenshin Himura —
+> — Sora —
 
 </div>
 
