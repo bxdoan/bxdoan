@@ -1,8 +1,8 @@
 <div align="center">
 
-> I didn’t fail the test. I just found 100 ways to do it wrong.
+> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
 
-> — Benjamin Franklin —
+> — Kenshin Himura —
 
 </div>
 
