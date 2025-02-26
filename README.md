@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not a game of luck. If you wanna win, work hard.
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Sora —
+> — Tony Robbins —
 
 </div>
 
