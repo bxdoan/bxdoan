@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
 
-> — Tony Robbins —
+> — Hatsu Kominato —
 
 </div>
 
