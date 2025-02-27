@@ -1,8 +1,8 @@
 <div align="center">
 
-> First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end.
+> The question isn’t who is going to let me; it’s who is going to stop me.
 
-> — Aristotle —
+> — Ayn Rand —
 
 </div>
 
