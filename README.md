@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> You can fly even higher
 
-> — Henry David Thoreau —
+> — Tobio Kageyama —
 
 </div>
 
