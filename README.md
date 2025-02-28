@@ -1,8 +1,8 @@
 <div align="center">
 
-> The question isn’t who is going to let me; it’s who is going to stop me.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Ayn Rand —
+> — Henry David Thoreau —
 
 </div>
 
