@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t share someone’s pain, you can never understand them.
+> If you can’t find a reason to fight, then you shouldn’t be fighting.
 
-> — Nagato —
+> — Akame —
 
 </div>
 
