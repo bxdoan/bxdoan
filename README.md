@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can fly even higher
+> If you don’t share someone’s pain, you can never understand them.
 
-> — Tobio Kageyama —
+> — Nagato —
 
 </div>
 
