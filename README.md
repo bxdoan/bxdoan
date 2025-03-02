@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life s a bore if you don t challenge yourself
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Yuu Nishinoya —
+> — Alibaba Saluja —
 
 </div>
 
