@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t find a reason to fight, then you shouldn’t be fighting.
+> Life s a bore if you don t challenge yourself
 
-> — Akame —
+> — Yuu Nishinoya —
 
 </div>
 
