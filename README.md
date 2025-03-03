@@ -1,8 +1,8 @@
 <div align="center">
 
-> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
+> If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward
 
-> — Alibaba Saluja —
+> — Tobio Kageyama —
 
 </div>
 
