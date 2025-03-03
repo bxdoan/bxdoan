@@ -1,8 +1,8 @@
 <div align="center">
 
-> If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward
+> It is at the moment of death that humanity has value.
 
-> — Tobio Kageyama —
+> — Archer —
 
 </div>
 
