@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are some flowers you only see when you take detours
+> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
 
-> — Tanaka Saeko —
+> — Mavis Vermillion —
 
 </div>
 
