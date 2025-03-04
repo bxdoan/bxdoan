@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is at the moment of death that humanity has value.
+> There are some flowers you only see when you take detours
 
-> — Archer —
+> — Tanaka Saeko —
 
 </div>
 
