@@ -1,8 +1,8 @@
 <div align="center">
 
-> The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.
+> The question isn’t who is going to let me; it’s who is going to stop me.
 
-> — Roy Mustang —
+> — Ayn Rand —
 
 </div>
 
