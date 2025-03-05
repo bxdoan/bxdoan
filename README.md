@@ -1,8 +1,8 @@
 <div align="center">
 
-> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
+> The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.
 
-> — Mavis Vermillion —
+> — Roy Mustang —
 
 </div>
 
