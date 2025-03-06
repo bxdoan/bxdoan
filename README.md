@@ -1,8 +1,8 @@
 <div align="center">
 
-> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
+> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
 
-> — Miss Kobayashi —
+> — Might Guy —
 
 </div>
 
