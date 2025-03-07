@@ -1,8 +1,8 @@
 <div align="center">
 
-> In the middle of every difficulty lies opportunity.
+> Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!
 
-> — Albert Einstein —
+> — Izuku Midoriya —
 
 </div>
 
