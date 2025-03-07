@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
+> In the middle of every difficulty lies opportunity.
 
-> — Might Guy —
+> — Albert Einstein —
 
 </div>
 
