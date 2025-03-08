@@ -1,8 +1,8 @@
 <div align="center">
 
-> What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do.
+> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
 
-> — Bob Dylan —
+> — Jesse Owens —
 
 </div>
 
