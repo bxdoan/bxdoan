@@ -1,8 +1,8 @@
 <div align="center">
 
-> People who can’t throw something important away, can never hope to change anything.
+> You can die anytime, but living takes true courage.
 
-> — Armin Arlelt —
+> — Himura Kenshin —
 
 </div>
 
