@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
+> It’s not the years in your life that count. It’s the life in your years.
 
-> — Hatsu Kominato —
+> — Abraham Lincoln —
 
 </div>
 
