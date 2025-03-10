@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can die anytime, but living takes true courage.
+> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
 
-> — Himura Kenshin —
+> — Hatsu Kominato —
 
 </div>
 
