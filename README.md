@@ -1,8 +1,8 @@
 <div align="center">
 
-> If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward
+> Life is what we make it, always has been, always will be.
 
-> — Tobio Kageyama —
+> — Grandma Moses —
 
 </div>
 
