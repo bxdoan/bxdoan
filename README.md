@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced.
 
-> — Allen Walker —
+> — Vincent Van Gogh —
 
 </div>
 
