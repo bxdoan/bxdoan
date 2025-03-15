@@ -1,8 +1,8 @@
 <div align="center">
 
-> Reject common sense to make the impossible possible.
+> It doesn’t do any good to pretend you can’t see what’s going on.
 
-> — Simon —
+> — Yuuya Mochizuki —
 
 </div>
 
