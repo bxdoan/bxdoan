@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced.
+> Reject common sense to make the impossible possible.
 
-> — Vincent Van Gogh —
+> — Simon —
 
 </div>
 
