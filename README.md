@@ -1,8 +1,8 @@
 <div align="center">
 
-> You become what you believe.
+> People become stronger because they have memories they can’t forget.
 
-> — Oprah Winfrey —
+> — Tsunade —
 
 </div>
 
