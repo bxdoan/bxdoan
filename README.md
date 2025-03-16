@@ -1,8 +1,8 @@
 <div align="center">
 
-> It doesn’t do any good to pretend you can’t see what’s going on.
+> You become what you believe.
 
-> — Yuuya Mochizuki —
+> — Oprah Winfrey —
 
 </div>
 
