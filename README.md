@@ -1,8 +1,8 @@
 <div align="center">
 
-> People become stronger because they have memories they can’t forget.
+> When you give up, that’s when the game ends.
 
-> — Tsunade —
+> — Mitsuyoshi Anzai —
 
 </div>
 
