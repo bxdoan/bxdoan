@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you give up, that’s when the game ends.
+> If you don’t share someone’s pain, you can never understand them.
 
-> — Mitsuyoshi Anzai —
+> — Nagato —
 
 </div>
 
