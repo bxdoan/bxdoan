@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t share someone’s pain, you can never understand them.
+> Being weak means that there is room to grow
 
-> — Nagato —
+> — Ittetsu Takeda —
 
 </div>
 
