@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak means that there is room to grow
+> If you can’t find a reason to fight, then you shouldn’t be fighting.
 
-> — Ittetsu Takeda —
+> — Akame —
 
 </div>
 
