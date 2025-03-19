@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t find a reason to fight, then you shouldn’t be fighting.
+> A place where someone still thinks about you is a place you can call home.
 
-> — Akame —
+> — Jiraiya —
 
 </div>
 
