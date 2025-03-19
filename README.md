@@ -1,8 +1,8 @@
 <div align="center">
 
-> A place where someone still thinks about you is a place you can call home.
+> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
 
-> — Jiraiya —
+> — Shintaro Midorima —
 
 </div>
 
