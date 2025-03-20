@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Shintaro Midorima —
+> — Juuzou Suzuya —
 
 </div>
 
