@@ -1,8 +1,8 @@
 <div align="center">
 
-> You should never give up on life, no matter how you feel. No matter how badly you want to give up.
+> The greatest pleasure in life is doing what people say you cannot do.
 
-> — Canaan —
+> — Walter Bagehot —
 
 </div>
 
