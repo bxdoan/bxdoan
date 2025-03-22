@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Dream big and dare to fail.
 
-> — Ralph Waldo Emerson —
+> — Norman Vaughan —
 
 </div>
 
