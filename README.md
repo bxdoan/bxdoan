@@ -1,8 +1,8 @@
 <div align="center">
 
-> The greatest pleasure in life is doing what people say you cannot do.
+> The only person you are destined to become is the person you decide to be.
 
-> — Walter Bagehot —
+> — Ralph Waldo Emerson —
 
 </div>
 
