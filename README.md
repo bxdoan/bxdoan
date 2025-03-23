@@ -1,8 +1,8 @@
 <div align="center">
 
-> Happiness is not something readymade.  It comes from your own actions.
+> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
 
-> — Dalai Lama —
+> — Shintaro Midorima —
 
 </div>
 
