@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life shrinks or expands in proportion to one’s courage.
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — Anais Nin —
+> — Unknown —
 
 </div>
 
