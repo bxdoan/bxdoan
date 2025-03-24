@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
+> Life shrinks or expands in proportion to one’s courage.
 
-> — Shintaro Midorima —
+> — Anais Nin —
 
 </div>
 
