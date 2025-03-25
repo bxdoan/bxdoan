@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
+> The mind is everything. What you think you become.
 
-> — Unknown —
+> — Buddha —
 
 </div>
 
