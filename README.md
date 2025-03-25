@@ -1,8 +1,8 @@
 <div align="center">
 
-> The mind is everything. What you think you become.
+> You may be disappointed if you fail, but you are doomed if you don’t try.
 
-> — Buddha —
+> — Beverly Sills —
 
 </div>
 
