@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no traffic jams along the extra mile.
+> Happiness is not something readymade.  It comes from your own actions.
 
-> — Roger Staubach —
+> — Dalai Lama —
 
 </div>
 
