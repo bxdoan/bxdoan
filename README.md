@@ -1,8 +1,8 @@
 <div align="center">
 
-> You may be disappointed if you fail, but you are doomed if you don’t try.
+> There are no traffic jams along the extra mile.
 
-> — Beverly Sills —
+> — Roger Staubach —
 
 </div>
 
