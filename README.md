@@ -1,8 +1,8 @@
 <div align="center">
 
-> Happiness is not something readymade.  It comes from your own actions.
+> Strive not to be a success, but rather to be of value.
 
-> — Dalai Lama —
+> — Albert Einstein —
 
 </div>
 
