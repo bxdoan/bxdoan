@@ -1,8 +1,8 @@
 <div align="center">
 
-> Strive not to be a success, but rather to be of value.
+> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
 
-> — Albert Einstein —
+> — Junichirou Kagami —
 
 </div>
 
