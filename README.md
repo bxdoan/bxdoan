@@ -1,8 +1,8 @@
 <div align="center">
 
-> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
+> The two most important days in your life are the day you are born and the day you find out why.
 
-> — Junichirou Kagami —
+> — Mark Twain —
 
 </div>
 
