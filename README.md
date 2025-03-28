@@ -1,8 +1,8 @@
 <div align="center">
 
-> The two most important days in your life are the day you are born and the day you find out why.
+> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
 
-> — Mark Twain —
+> — Himura Kenshin —
 
 </div>
 
