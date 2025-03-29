@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
+> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
 
-> — Himura Kenshin —
+> — Yuuji Kazami —
 
 </div>
 
