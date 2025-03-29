@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> The best revenge is massive success.
 
-> — Yuuji Kazami —
+> — Frank Sinatra —
 
 </div>
 
