@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best revenge is massive success.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Frank Sinatra —
+> — Allen Walker —
 
 </div>
 
