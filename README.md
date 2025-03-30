@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> Giving up kills people. When people reject giving up… they finally win the right to transcend humanity.
 
-> — Allen Walker —
+> — Alucard —
 
 </div>
 
