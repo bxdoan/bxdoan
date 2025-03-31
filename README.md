@@ -1,8 +1,8 @@
 <div align="center">
 
-> You miss 100% of the shots you don’t take.
+> I refuse to let my fear control me anymore.
 
-> — Wayne Gretzky —
+> — Maka Albarn —
 
 </div>
 
