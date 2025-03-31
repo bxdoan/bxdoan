@@ -1,8 +1,8 @@
 <div align="center">
 
-> Giving up kills people. When people reject giving up… they finally win the right to transcend humanity.
+> You miss 100% of the shots you don’t take.
 
-> — Alucard —
+> — Wayne Gretzky —
 
 </div>
 
