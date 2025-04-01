@@ -1,8 +1,8 @@
 <div align="center">
 
-> I refuse to let my fear control me anymore.
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Maka Albarn —
+> — Juuzou Suzuya —
 
 </div>
 
