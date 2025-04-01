@@ -1,8 +1,8 @@
 <div align="center">
 
-> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
+> Being weak means that there is room to grow
 
-> — Juuzou Suzuya —
+> — Ittetsu Takeda —
 
 </div>
 
