@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak means that there is room to grow
+> Dream big and dare to fail.
 
-> — Ittetsu Takeda —
+> — Norman Vaughan —
 
 </div>
 
