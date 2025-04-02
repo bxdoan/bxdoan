@@ -1,8 +1,8 @@
 <div align="center">
 
-> Dream big and dare to fail.
+> Power comes in response to a need, not a desire. You have to create that need.
 
-> — Norman Vaughan —
+> — Goku —
 
 </div>
 
