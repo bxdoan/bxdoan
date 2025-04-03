@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> When you give up, that’s when the game ends.
 
-> — Japanese Proverb —
+> — Mitsuyoshi Anzai —
 
 </div>
 
