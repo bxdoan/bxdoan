@@ -1,8 +1,8 @@
 <div align="center">
 
-> A dropout will beat a genius through hard work.
+> The only person you are destined to become is the person you decide to be.
 
-> — Rock Lee —
+> — Ralph Waldo Emerson —
 
 </div>
 
