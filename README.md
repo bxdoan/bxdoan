@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you give up, that’s when the game ends.
+> A dropout will beat a genius through hard work.
 
-> — Mitsuyoshi Anzai —
+> — Rock Lee —
 
 </div>
 
