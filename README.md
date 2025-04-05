@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Being the best decoy ever is as cool as being the ace
 
-> — Ralph Waldo Emerson —
+> — Tobio Kageyama —
 
 </div>
 
