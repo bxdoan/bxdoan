@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being the best decoy ever is as cool as being the ace
+> Everything has beauty, but not everyone can see.
 
-> — Tobio Kageyama —
+> — Confucius —
 
 </div>
 
