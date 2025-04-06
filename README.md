@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything has beauty, but not everyone can see.
+> The only person you are destined to become is the person you decide to be.
 
-> — Confucius —
+> — Ralph Waldo Emerson —
 
 </div>
 
