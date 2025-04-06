@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
 
-> — Ralph Waldo Emerson —
+> — Mark Twain —
 
 </div>
 
