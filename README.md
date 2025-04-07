@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not the years in your life that count. It’s the life in your years.
+> The only limit to our realization of tomorrow will be our doubts of today.
 
-> — Abraham Lincoln —
+> — Franklin D. Roosevelt —
 
 </div>
 
