@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only limit to our realization of tomorrow will be our doubts of today.
+> Life s a bore if you don t challenge yourself
 
-> — Franklin D. Roosevelt —
+> — Yuu Nishinoya —
 
 </div>
 
