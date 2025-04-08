@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life s a bore if you don t challenge yourself
+> The question isn’t who is going to let me; it’s who is going to stop me.
 
-> — Yuu Nishinoya —
+> — Ayn Rand —
 
 </div>
 
