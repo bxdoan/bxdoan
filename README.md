@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can die anytime, but living takes true courage.
+> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
 
-> — Himura Kenshin —
+> — Miss Kobayashi —
 
 </div>
 
