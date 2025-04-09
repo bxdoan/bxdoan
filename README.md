@@ -1,8 +1,8 @@
 <div align="center">
 
-> The question isn’t who is going to let me; it’s who is going to stop me.
+> You can die anytime, but living takes true courage.
 
-> — Ayn Rand —
+> — Himura Kenshin —
 
 </div>
 
