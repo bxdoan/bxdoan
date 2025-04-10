@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you just submit yourself to fate, then that’s the end of it.
+> It is never too late to be what you might have been.
 
-> — Keiichi Maebara —
+> — George Eliot —
 
 </div>
 
