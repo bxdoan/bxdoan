@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
+> Success is not final, failure is not fatal: It is the courage to continue that counts.
 
-> — Unknown —
+> — Winston Churchill —
 
 </div>
 
