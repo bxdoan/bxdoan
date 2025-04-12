@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not final, failure is not fatal: It is the courage to continue that counts.
+> We can’t waste time worrying about the what if’s.
 
-> — Winston Churchill —
+> — Ichigo Kurosaki —
 
 </div>
 
