@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t waste time worrying about the what if’s.
+> People’s lives don’t end when they die, it ends when they lose faith.
 
-> — Ichigo Kurosaki —
+> — Itachi Uchiha —
 
 </div>
 
