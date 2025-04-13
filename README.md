@@ -1,8 +1,8 @@
 <div align="center">
 
-> People’s lives don’t end when they die, it ends when they lose faith.
+> Either you run the day, or the day runs you.
 
-> — Itachi Uchiha —
+> — Jim Rohn —
 
 </div>
 
