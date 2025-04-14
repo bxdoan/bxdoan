@@ -1,8 +1,8 @@
 <div align="center">
 
-> Either you run the day, or the day runs you.
+> If you don’t take risks, you can’t create a future!
 
-> — Jim Rohn —
+> — Monkey D Luffy —
 
 </div>
 
