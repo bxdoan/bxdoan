@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t take risks, you can’t create a future!
+> Whether you think you can or you think you can’t, you’re right.
 
-> — Monkey D Luffy —
+> — Henry Ford —
 
 </div>
 
