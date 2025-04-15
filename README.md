@@ -1,8 +1,8 @@
 <div align="center">
 
-> I attribute my success to this: I never gave or took any excuse.
+> It doesn’t do any good to pretend you can’t see what’s going on.
 
-> — Florence Nightingale —
+> — Yuuya Mochizuki —
 
 </div>
 
