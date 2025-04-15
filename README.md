@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whether you think you can or you think you can’t, you’re right.
+> I attribute my success to this: I never gave or took any excuse.
 
-> — Henry Ford —
+> — Florence Nightingale —
 
 </div>
 
