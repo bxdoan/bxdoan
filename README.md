@@ -1,8 +1,8 @@
 <div align="center">
 
-> It doesn’t do any good to pretend you can’t see what’s going on.
+> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
 
-> — Yuuya Mochizuki —
+> — Marie Curie —
 
 </div>
 
