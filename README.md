@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
+> Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life.
 
-> — Marie Curie —
+> — Mion Sonozaki —
 
 </div>
 
