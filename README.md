@@ -1,8 +1,8 @@
 <div align="center">
 
-> I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for.
+> You can never cross the ocean until you have the courage to lose sight of the shore.
 
-> — Julis Alexia Van Riessfeld —
+> — Christopher Columbus —
 
 </div>
 
