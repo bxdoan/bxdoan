@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life.
+> I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for.
 
-> — Mion Sonozaki —
+> — Julis Alexia Van Riessfeld —
 
 </div>
 
