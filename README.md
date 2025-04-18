@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can never cross the ocean until you have the courage to lose sight of the shore.
+> Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing!
 
-> — Christopher Columbus —
+> — Satsuki Kiryuuin —
 
 </div>
 
