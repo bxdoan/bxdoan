@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can never cross the ocean until you have the courage to lose sight of the shore.
+> Challenges are what make life interesting and overcoming them is what makes life meaningful.
 
-> — Christopher Columbus —
+> — Joshua J. Marine —
 
 </div>
 
