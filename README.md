@@ -1,8 +1,8 @@
 <div align="center">
 
-> Challenges are what make life interesting and overcoming them is what makes life meaningful.
+> If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision.
 
-> — Joshua J. Marine —
+> — Erwin Smith —
 
 </div>
 
