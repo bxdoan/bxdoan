@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice!
 
-> — Japanese Proverb —
+> — Don Quixote Doflamingo —
 
 </div>
 
