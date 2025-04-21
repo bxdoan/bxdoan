@@ -1,8 +1,8 @@
 <div align="center">
 
-> Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice!
+> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
 
-> — Don Quixote Doflamingo —
+> — Gildarts Clive —
 
 </div>
 
