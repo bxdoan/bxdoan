@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
+> You should never give up on life, no matter how you feel. No matter how badly you want to give up.
 
-> — Gildarts Clive —
+> — Canaan —
 
 </div>
 
