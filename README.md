@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> You can never cross the ocean until you have the courage to lose sight of the shore.
 
-> — Touko Aozaki —
+> — Christopher Columbus —
 
 </div>
 
