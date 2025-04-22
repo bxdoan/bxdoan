@@ -1,8 +1,8 @@
 <div align="center">
 
-> You should never give up on life, no matter how you feel. No matter how badly you want to give up.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Canaan —
+> — Touko Aozaki —
 
 </div>
 
