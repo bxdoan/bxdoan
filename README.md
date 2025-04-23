@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can never cross the ocean until you have the courage to lose sight of the shore.
+> Teach thy tongue to say, “I do not know,” and thous shalt progress.
 
-> — Christopher Columbus —
+> — Maimonides —
 
 </div>
 
