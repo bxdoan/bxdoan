@@ -1,8 +1,8 @@
 <div align="center">
 
-> Teach thy tongue to say, “I do not know,” and thous shalt progress.
+> If the wind will not serve, take to the oars.
 
-> — Maimonides —
+> — Latin Proverb —
 
 </div>
 
