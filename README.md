@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> If you don’t like your destiny, don’t accept it.
 
-> — Grandma Moses —
+> — Naruto Uzumaki —
 
 </div>
 
