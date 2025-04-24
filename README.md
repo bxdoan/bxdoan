@@ -1,8 +1,8 @@
 <div align="center">
 
-> If the wind will not serve, take to the oars.
+> Life is what we make it, always has been, always will be.
 
-> — Latin Proverb —
+> — Grandma Moses —
 
 </div>
 
