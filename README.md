@@ -1,8 +1,8 @@
 <div align="center">
 
-> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
+> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
 
-> — Jesus —
+> — Jesse Owens —
 
 </div>
 
