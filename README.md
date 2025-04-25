@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it.
+> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
 
-> — Naruto Uzumaki —
+> — Jesus —
 
 </div>
 
