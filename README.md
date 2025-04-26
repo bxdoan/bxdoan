@@ -1,8 +1,8 @@
 <div align="center">
 
-> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
+> Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!
 
-> — Jesse Owens —
+> — Izuku Midoriya —
 
 </div>
 
