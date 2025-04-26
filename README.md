@@ -1,8 +1,8 @@
 <div align="center">
 
-> Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!
+> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
 
-> — Izuku Midoriya —
+> — Hatsu Kominato —
 
 </div>
 
