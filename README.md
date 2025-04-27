@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person who never made a mistake never tried anything new.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> —  Albert Einstein —
+> — Pablo Picasso —
 
 </div>
 
