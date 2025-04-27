@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
+> A person who never made a mistake never tried anything new.
 
-> — Hatsu Kominato —
+> —  Albert Einstein —
 
 </div>
 
