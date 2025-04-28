@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end.
+> The only limit to our realization of tomorrow will be our doubts of today.
 
-> — Clare —
+> — Franklin D. Roosevelt —
 
 </div>
 
