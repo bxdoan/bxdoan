@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hard work is worthless for those that don’t believe in themselves.
+> Start where you are. Use what you have.  Do what you can.
 
-> — Naruto Uzumaki —
+> — Arthur Ashe —
 
 </div>
 
