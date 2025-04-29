@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only limit to our realization of tomorrow will be our doubts of today.
+> Hard work is worthless for those that don’t believe in themselves.
 
-> — Franklin D. Roosevelt —
+> — Naruto Uzumaki —
 
 </div>
 
