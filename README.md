@@ -1,8 +1,8 @@
 <div align="center">
 
-> An excellent leader must be passionate because it’s their duty to keep everyone moving forward.
+> It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight
 
-> — Nico Yazawa —
+> — Eren —
 
 </div>
 
