@@ -1,8 +1,8 @@
 <div align="center">
 
-> Start where you are. Use what you have.  Do what you can.
+> An excellent leader must be passionate because it’s their duty to keep everyone moving forward.
 
-> — Arthur Ashe —
+> — Nico Yazawa —
 
 </div>
 
