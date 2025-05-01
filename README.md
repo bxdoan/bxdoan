@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> — Junichirou Kagami —
+> — Hange Zoë —
 
 </div>
 
