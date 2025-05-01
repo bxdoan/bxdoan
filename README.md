@@ -1,8 +1,8 @@
 <div align="center">
 
-> It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight
+> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
 
-> — Eren —
+> — Junichirou Kagami —
 
 </div>
 
