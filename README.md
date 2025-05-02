@@ -1,8 +1,8 @@
 <div align="center">
 
-> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
+> In the middle of every difficulty lies opportunity.
 
-> — Henry Ford —
+> — Albert Einstein —
 
 </div>
 
