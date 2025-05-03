@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only limit to our realization of tomorrow will be our doubts of today.
+> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
 
-> — Franklin D. Roosevelt —
+> — Maya Angelou —
 
 </div>
 
