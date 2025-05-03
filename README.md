@@ -1,8 +1,8 @@
 <div align="center">
 
-> In the middle of every difficulty lies opportunity.
+> The only limit to our realization of tomorrow will be our doubts of today.
 
-> — Albert Einstein —
+> — Franklin D. Roosevelt —
 
 </div>
 
