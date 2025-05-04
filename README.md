@@ -1,8 +1,8 @@
 <div align="center">
 
-> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
+> We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
 
-> — Mark Twain —
+> — Plato —
 
 </div>
 
