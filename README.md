@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
+> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
 
-> — Maya Angelou —
+> — Mark Twain —
 
 </div>
 
