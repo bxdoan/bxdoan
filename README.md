@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be.
+> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!
 
-> — Naruto Uzumaki —
+> — Haruhi Fujioka —
 
 </div>
 
