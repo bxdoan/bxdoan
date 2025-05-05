@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
+> If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be.
 
-> — Plato —
+> — Naruto Uzumaki —
 
 </div>
 
