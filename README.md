@@ -1,8 +1,8 @@
 <div align="center">
 
-> It does not matter how slowly you go as long as you do not stop.
+> Our lives begin to end the day we become silent about things that matter.
 
-> — Confucius —
+> — Martin Luther King Jr. —
 
 </div>
 
