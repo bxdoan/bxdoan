@@ -1,8 +1,8 @@
 <div align="center">
 
-> Our lives begin to end the day we become silent about things that matter.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — Martin Luther King Jr. —
+> — Napoleon Hill —
 
 </div>
 
