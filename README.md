@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever the mind of man can conceive and believe, it can achieve.
+> Life is 10% what happens to me and 90% of how I react to it.
 
-> — Napoleon Hill —
+> — Charles Swindoll —
 
 </div>
 
