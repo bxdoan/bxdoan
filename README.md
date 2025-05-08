@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is never too late to be what you might have been.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — George Eliot —
+> — Napoleon Hill —
 
 </div>
 
