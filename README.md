@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is 10% what happens to me and 90% of how I react to it.
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — Charles Swindoll —
+> — Unknown —
 
 </div>
 
