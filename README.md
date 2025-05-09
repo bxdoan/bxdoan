@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
+> To act is not necessarily compassion. True compassion sometimes comes from inaction.
 
-> — Unknown —
+> — Hinata Miyake —
 
 </div>
 
