@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
+> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
 
-> — Junichirou Kagami —
+> — Himura Kenshin —
 
 </div>
 
