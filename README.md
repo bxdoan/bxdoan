@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Whether you think you can or you think you can’t, you’re right.
 
-> — Ralph Waldo Emerson —
+> — Henry Ford —
 
 </div>
 
