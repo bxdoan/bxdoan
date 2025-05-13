@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
+> The only person you are destined to become is the person you decide to be.
 
-> — Himura Kenshin —
+> — Ralph Waldo Emerson —
 
 </div>
 
