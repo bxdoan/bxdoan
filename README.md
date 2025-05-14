@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whether you think you can or you think you can’t, you’re right.
+> People become stronger because they have memories they can’t forget.
 
-> — Henry Ford —
+> — Tsunade —
 
 </div>
 
