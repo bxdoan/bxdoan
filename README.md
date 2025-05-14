@@ -1,8 +1,8 @@
 <div align="center">
 
-> People become stronger because they have memories they can’t forget.
+> There are some flowers you only see when you take detours
 
-> — Tsunade —
+> — Tanaka Saeko —
 
 </div>
 
