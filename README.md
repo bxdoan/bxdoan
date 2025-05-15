@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are some flowers you only see when you take detours
+> Every journey begins with a single step. We just have to have patience.
 
-> — Tanaka Saeko —
+> — Milly Thompson —
 
 </div>
 
