@@ -1,8 +1,8 @@
 <div align="center">
 
-> The mind is everything. What you think you become.
+> Eighty percent of success is showing up.
 
-> — Buddha —
+> — Woody Allen —
 
 </div>
 
