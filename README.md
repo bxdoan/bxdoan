@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> The mind is everything. What you think you become.
 
-> — Tony Robbins —
+> — Buddha —
 
 </div>
 
