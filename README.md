@@ -1,8 +1,8 @@
 <div align="center">
 
-> Eighty percent of success is showing up.
+> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
 
-> — Woody Allen —
+> — Sheryl Sandberg —
 
 </div>
 
