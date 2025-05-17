@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
+> Success usually comes to those who are too busy to be looking for it.
 
-> — Sheryl Sandberg —
+> — Henry David Thoreau —
 
 </div>
 
