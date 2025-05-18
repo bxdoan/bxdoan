@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success usually comes to those who are too busy to be looking for it.
+> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
 
-> — Henry David Thoreau —
+> — Helen Keller —
 
 </div>
 
