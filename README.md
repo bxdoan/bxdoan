@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
 
-> — Zig Ziglar —
+> — Mavis Vermillion —
 
 </div>
 
