@@ -1,8 +1,8 @@
 <div align="center">
 
-> A truly rich man is one whose children run into his arms when his hands are empty.
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Unknown —
+> — Zig Ziglar —
 
 </div>
 
