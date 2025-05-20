@@ -1,8 +1,8 @@
 <div align="center">
 
-> Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.
+> Thinking you’re no-good and worthless is the worst thing you can do
 
-> — Mavis Vermillion —
+> — Nobito —
 
 </div>
 
