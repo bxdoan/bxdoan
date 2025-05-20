@@ -1,8 +1,8 @@
 <div align="center">
 
-> Thinking you’re no-good and worthless is the worst thing you can do
+> Nothing is impossible, the word itself says, “I’m possible!”
 
-> — Nobito —
+> — –Audrey Hepburn —
 
 </div>
 
