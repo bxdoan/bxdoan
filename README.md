@@ -1,8 +1,8 @@
 <div align="center">
 
-> Nothing is impossible, the word itself says, “I’m possible!”
+> Success is not final, failure is not fatal: It is the courage to continue that counts.
 
-> — –Audrey Hepburn —
+> — Winston Churchill —
 
 </div>
 
