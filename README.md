@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not final, failure is not fatal: It is the courage to continue that counts.
+> I would rather die of passion than of boredom.
 
-> — Winston Churchill —
+> — Vincent van Gogh —
 
 </div>
 
