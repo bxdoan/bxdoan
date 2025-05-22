@@ -1,8 +1,8 @@
 <div align="center">
 
-> I would rather die of passion than of boredom.
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Vincent van Gogh —
+> — Tony Robbins —
 
 </div>
 
