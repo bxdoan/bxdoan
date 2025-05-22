@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
 
-> — Tony Robbins —
+> — Yuuji Kazami —
 
 </div>
 
