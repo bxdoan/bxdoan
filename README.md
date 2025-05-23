@@ -1,8 +1,8 @@
 <div align="center">
 
-> I refuse to let my fear control me anymore.
+> Everything you’ve ever wanted is on the other side of fear.
 
-> — Maka Albarn —
+> — George Addair —
 
 </div>
 
