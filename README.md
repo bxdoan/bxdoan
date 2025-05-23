@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> I refuse to let my fear control me anymore.
 
-> — Yuuji Kazami —
+> — Maka Albarn —
 
 </div>
 
