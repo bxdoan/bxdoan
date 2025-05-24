@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything you’ve ever wanted is on the other side of fear.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — George Addair —
+> — Napoleon Hill —
 
 </div>
 
