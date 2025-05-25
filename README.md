@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> It is never too late to be what you might have been.
 
-> — Yuuji Kazami —
+> — George Eliot —
 
 </div>
 
