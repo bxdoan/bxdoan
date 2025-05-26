@@ -1,8 +1,8 @@
 <div align="center">
 
-> Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice!
+> Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.
 
-> — Don Quixote Doflamingo —
+> — Johann Wolfgang von Goethe —
 
 </div>
 
