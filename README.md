@@ -1,8 +1,8 @@
 <div align="center">
 
-> Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it.
+> Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice!
 
-> — Kyousuke Natsume —
+> — Don Quixote Doflamingo —
 
 </div>
 
