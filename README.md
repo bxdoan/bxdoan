@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> No matter how hard or impossible it is, never lose sight of your goal.
 
-> — Henry David Thoreau —
+> — Monkey D Luffy —
 
 </div>
 
