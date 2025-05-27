@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Johann Wolfgang von Goethe —
+> — Henry David Thoreau —
 
 </div>
 
