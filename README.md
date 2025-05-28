@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
+> Everything you’ve ever wanted is on the other side of fear.
 
-> — Plato —
+> — George Addair —
 
 </div>
 
