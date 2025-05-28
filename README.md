@@ -1,8 +1,8 @@
 <div align="center">
 
-> No matter how hard or impossible it is, never lose sight of your goal.
+> We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
 
-> — Monkey D Luffy —
+> — Plato —
 
 </div>
 
