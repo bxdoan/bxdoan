@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything you’ve ever wanted is on the other side of fear.
+> Success usually comes to those who are too busy to be looking for it.
 
-> — George Addair —
+> — Henry David Thoreau —
 
 </div>
 
