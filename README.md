@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t find a reason to fight, then you shouldn’t be fighting.
+> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
 
-> — Akame —
+> — Erica Jong —
 
 </div>
 
