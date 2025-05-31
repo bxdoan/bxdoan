@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
+> If you can’t find a reason to fight, then you shouldn’t be fighting.
 
-> — Yato —
+> — Akame —
 
 </div>
 
