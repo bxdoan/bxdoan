@@ -1,8 +1,8 @@
 <div align="center">
 
-> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
+> Today might be the chance to grasp the chance to let your talent bloom
 
-> — Princess Lenessia —
+> — Tooru Oikawa —
 
 </div>
 
