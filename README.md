@@ -1,8 +1,8 @@
 <div align="center">
 
-> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
+> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
 
-> — Erica Jong —
+> — Princess Lenessia —
 
 </div>
 
