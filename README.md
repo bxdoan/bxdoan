@@ -1,8 +1,8 @@
 <div align="center">
 
-> Today might be the chance to grasp the chance to let your talent bloom
+> We must balance conspicuous consumption with conscious capitalism.
 
-> — Tooru Oikawa —
+> — Kevin Kruse —
 
 </div>
 
