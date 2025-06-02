@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must balance conspicuous consumption with conscious capitalism.
+> It is at the moment of death that humanity has value.
 
-> — Kevin Kruse —
+> — Archer —
 
 </div>
 
