@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you just submit yourself to fate, then that’s the end of it.
+> It’s just pathetic to give up on something before you even give it a shot.
 
-> — Keiichi Maebara —
+> — Reiko Mikami —
 
 </div>
 
