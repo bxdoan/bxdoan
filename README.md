@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is at the moment of death that humanity has value.
+> If you just submit yourself to fate, then that’s the end of it.
 
-> — Archer —
+> — Keiichi Maebara —
 
 </div>
 
