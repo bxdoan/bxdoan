@@ -1,8 +1,8 @@
 <div align="center">
 
-> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
+> Do not think about other things, there is only one thing you can do. So master that one thing. Do not forget. What you must imagine is always that you, yourself, are the strongest. You do not need outside enemies. For you, the one you have to fight is none other than your own image.
 
-> — Henry Ford —
+> — Archer —
 
 </div>
 
