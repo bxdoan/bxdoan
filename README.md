@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s just pathetic to give up on something before you even give it a shot.
+> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
 
-> — Reiko Mikami —
+> — Henry Ford —
 
 </div>
 
