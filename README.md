@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> It is at the moment of death that humanity has value.
 
-> — Matsumoto Rangiku —
+> — Archer —
 
 </div>
 
