@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own.
+> Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin
 
-> — Jiraiya —
+> — Kenny Ackerman —
 
 </div>
 
