@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+> That’s why I can’t make a change. Everything I do is so… Half-assed.
 
-> — Albert Schweitzer —
+> — Hiroshi Kido —
 
 </div>
 
