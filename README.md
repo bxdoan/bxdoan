@@ -1,8 +1,8 @@
 <div align="center">
 
-> That’s why I can’t make a change. Everything I do is so… Half-assed.
+> You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face.
 
-> — Hiroshi Kido —
+> — Roronoa Zoro —
 
 </div>
 
