@@ -1,8 +1,8 @@
 <div align="center">
 
-> Teach thy tongue to say, “I do not know,” and thous shalt progress.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Maimonides —
+> — Allen Walker —
 
 </div>
 
