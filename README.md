@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
 
-> — Allen Walker —
+> — Junichirou Kagami —
 
 </div>
 
