@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Might Guy —
+> — Allen Walker —
 
 </div>
 
