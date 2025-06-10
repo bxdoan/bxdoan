@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
+> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
 
-> — Junichirou Kagami —
+> — Might Guy —
 
 </div>
 
