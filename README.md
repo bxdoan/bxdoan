@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> There are some flowers you only see when you take detours
 
-> — Allen Walker —
+> — Tanaka Saeko —
 
 </div>
 
