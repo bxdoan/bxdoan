@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t use up creativity.  The more you use, the more you have.
+> If you can’t do something, then don’t. Focus on what you can.
 
-> — Maya Angelou —
+> — Shiroe —
 
 </div>
 
