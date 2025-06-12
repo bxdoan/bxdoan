@@ -1,6 +1,6 @@
 <div align="center">
 
-> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
+> You can’t use up creativity.  The more you use, the more you have.
 
 > — Maya Angelou —
 
