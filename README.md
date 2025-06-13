@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t do something, then don’t. Focus on what you can.
+> I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you!
 
-> — Shiroe —
+> — Son Goku —
 
 </div>
 
