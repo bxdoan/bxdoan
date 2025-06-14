@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must balance conspicuous consumption with conscious capitalism.
+> Reject common sense to make the impossible possible.
 
-> — Kevin Kruse —
+> — Simon —
 
 </div>
 
