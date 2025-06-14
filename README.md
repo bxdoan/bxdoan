@@ -1,8 +1,8 @@
 <div align="center">
 
-> Reject common sense to make the impossible possible.
+> If You Win You Live If You Lose You Die If You Don t Fight You Can t Win
 
-> — Simon —
+> — Eren —
 
 </div>
 
