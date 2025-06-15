@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s just pathetic to give up on something before you even give it a shot.
+> No matter how hard or impossible it is, never lose sight of your goal.
 
-> — Reiko Mikami —
+> — Monkey D Luffy —
 
 </div>
 
