@@ -1,8 +1,8 @@
 <div align="center">
 
-> If You Win You Live If You Lose You Die If You Don t Fight You Can t Win
+> It’s just pathetic to give up on something before you even give it a shot.
 
-> — Eren —
+> — Reiko Mikami —
 
 </div>
 
