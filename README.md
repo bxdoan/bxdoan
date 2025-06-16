@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> Forgetting is like a wound. The wound may heal, but it has already left a scar.
 
-> — Tony Robbins —
+> — Monkey D Luffy —
 
 </div>
 
