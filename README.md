@@ -1,8 +1,8 @@
 <div align="center">
 
-> No matter how hard or impossible it is, never lose sight of your goal.
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Monkey D Luffy —
+> — Tony Robbins —
 
 </div>
 
