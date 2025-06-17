@@ -1,8 +1,8 @@
 <div align="center">
 
-> A truly rich man is one whose children run into his arms when his hands are empty.
+> As Long As We Continue To Fight We Are Not Defeated
 
-> — Unknown —
+> — Miche Zacharius —
 
 </div>
 
