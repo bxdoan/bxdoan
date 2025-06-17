@@ -1,8 +1,8 @@
 <div align="center">
 
-> Forgetting is like a wound. The wound may heal, but it has already left a scar.
+> A truly rich man is one whose children run into his arms when his hands are empty.
 
-> — Monkey D Luffy —
+> — Unknown —
 
 </div>
 
