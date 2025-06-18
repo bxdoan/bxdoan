@@ -1,8 +1,8 @@
 <div align="center">
 
-> I would rather die of passion than of boredom.
+> Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.
 
-> — Vincent van Gogh —
+> — Gilgamesh —
 
 </div>
 
