@@ -1,8 +1,8 @@
 <div align="center">
 
-> As Long As We Continue To Fight We Are Not Defeated
+> I would rather die of passion than of boredom.
 
-> — Miche Zacharius —
+> — Vincent van Gogh —
 
 </div>
 
