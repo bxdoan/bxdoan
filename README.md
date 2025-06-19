@@ -1,8 +1,8 @@
 <div align="center">
 
-> The moment you think of giving up, think of the reason why you held on so long.
+> If you can dream it, you can achieve it.
 
-> — Natsu Dragneel —
+> — Zig Ziglar —
 
 </div>
 
