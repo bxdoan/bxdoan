@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
 
-> — Zig Ziglar —
+> — Maya Angelou —
 
 </div>
 
