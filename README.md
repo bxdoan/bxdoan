@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
+> The ticket to the future is always open.
 
-> — Maya Angelou —
+> — Vash The Stampede —
 
 </div>
 
