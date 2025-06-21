@@ -1,8 +1,8 @@
 <div align="center">
 
-> The ticket to the future is always open.
+> Too many of us are not living our dreams because we are living our fears.
 
-> — Vash The Stampede —
+> — Les Brown —
 
 </div>
 
