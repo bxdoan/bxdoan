@@ -1,8 +1,8 @@
 <div align="center">
 
-> Too many of us are not living our dreams because we are living our fears.
+> Power comes in response to a need, not a desire. You have to create that need.
 
-> — Les Brown —
+> — Goku —
 
 </div>
 
