@@ -1,8 +1,8 @@
 <div align="center">
 
-> Power comes in response to a need, not a desire. You have to create that need.
+> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
 
-> — Goku —
+> — Mae Jemison —
 
 </div>
 
