@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
+> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
 
-> — Mae Jemison —
+> — Yuuji Kazami —
 
 </div>
 
