@@ -1,8 +1,8 @@
 <div align="center">
 
-> Education costs money.  But then so does ignorance.
+> In order to succeed, your desire for success should be greater than your fear of failure.
 
-> — Sir Claus Moser —
+> — Bill Cosby —
 
 </div>
 
