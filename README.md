@@ -1,8 +1,8 @@
 <div align="center">
 
-> In order to succeed, your desire for success should be greater than your fear of failure.
+> Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end.
 
-> — Bill Cosby —
+> — Clare —
 
 </div>
 
