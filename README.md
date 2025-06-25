@@ -1,8 +1,8 @@
 <div align="center">
 
-> If the wind will not serve, take to the oars.
+> The two most important days in your life are the day you are born and the day you find out why.
 
-> — Latin Proverb —
+> — Mark Twain —
 
 </div>
 
