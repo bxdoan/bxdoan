@@ -1,8 +1,8 @@
 <div align="center">
 
-> The two most important days in your life are the day you are born and the day you find out why.
+> You can’t always hold on to the things that are important. By letting them go we gain something else.
 
-> — Mark Twain —
+> — Kunio Yaobi —
 
 </div>
 
