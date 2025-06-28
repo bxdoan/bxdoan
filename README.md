@@ -1,8 +1,8 @@
 <div align="center">
 
-> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
+> It doesn’t do any good to pretend you can’t see what’s going on.
 
-> — Jesus —
+> — Yuuya Mochizuki —
 
 </div>
 
