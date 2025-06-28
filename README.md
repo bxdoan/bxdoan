@@ -1,8 +1,8 @@
 <div align="center">
 
-> Power comes in response to a need, not a desire. You have to create that need.
+> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
 
-> — Goku —
+> — Jesus —
 
 </div>
 
