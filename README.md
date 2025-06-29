@@ -1,8 +1,8 @@
 <div align="center">
 
-> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
+> Certain things catch your eye, but pursue only those that capture the heart.
 
-> — Booker T. Washington —
+> —  Ancient Indian Proverb —
 
 </div>
 
