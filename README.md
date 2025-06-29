@@ -1,8 +1,8 @@
 <div align="center">
 
-> It doesn’t do any good to pretend you can’t see what’s going on.
+> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
 
-> — Yuuya Mochizuki —
+> — Booker T. Washington —
 
 </div>
 
