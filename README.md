@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person who never made a mistake never tried anything new.
+> If you want to lift yourself up, lift up someone else.
 
-> —  Albert Einstein —
+> — Booker T. Washington —
 
 </div>
 
