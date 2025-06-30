@@ -1,8 +1,8 @@
 <div align="center">
 
-> Certain things catch your eye, but pursue only those that capture the heart.
+> A person who never made a mistake never tried anything new.
 
-> —  Ancient Indian Proverb —
+> —  Albert Einstein —
 
 </div>
 
