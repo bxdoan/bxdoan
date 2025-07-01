@@ -1,8 +1,8 @@
 <div align="center">
 
-> Happiness is not something readymade.  It comes from your own actions.
+> The only way to do great work is to love what you do.
 
-> — Dalai Lama —
+> — Steve Jobs —
 
 </div>
 
