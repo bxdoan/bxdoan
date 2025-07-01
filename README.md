@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want to lift yourself up, lift up someone else.
+> Happiness is not something readymade.  It comes from your own actions.
 
-> — Booker T. Washington —
+> — Dalai Lama —
 
 </div>
 
