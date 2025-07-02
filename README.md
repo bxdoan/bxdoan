@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only way to do great work is to love what you do.
+> You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words
 
-> — Steve Jobs —
+> — Ymir —
 
 </div>
 
