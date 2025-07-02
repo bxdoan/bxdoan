@@ -1,8 +1,8 @@
 <div align="center">
 
-> You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words
+> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
 
-> — Ymir —
+> — Aristotle —
 
 </div>
 
