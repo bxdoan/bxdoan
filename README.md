@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak means that there is room to grow
+> The mind is everything. What you think you become.
 
-> — Ittetsu Takeda —
+> — Buddha —
 
 </div>
 
