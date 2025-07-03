@@ -1,8 +1,8 @@
 <div align="center">
 
-> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
+> Being weak means that there is room to grow
 
-> — Aristotle —
+> — Ittetsu Takeda —
 
 </div>
 
