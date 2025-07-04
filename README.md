@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life isn’t about getting and having, it’s about giving and being.
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> — Kevin Kruse —
+> — Hange Zoë —
 
 </div>
 
