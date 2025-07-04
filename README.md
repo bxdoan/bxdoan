@@ -1,8 +1,8 @@
 <div align="center">
 
-> The mind is everything. What you think you become.
+> Life isn’t about getting and having, it’s about giving and being.
 
-> — Buddha —
+> — Kevin Kruse —
 
 </div>
 
