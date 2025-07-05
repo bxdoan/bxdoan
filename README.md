@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> Life is 10% what happens to me and 90% of how I react to it.
 
-> — Yuuji Kazami —
+> — Charles Swindoll —
 
 </div>
 
