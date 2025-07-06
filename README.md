@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is 10% what happens to me and 90% of how I react to it.
+> I have learned over the years that when one’s mind is made up, this diminishes fear.
 
-> — Charles Swindoll —
+> — Rosa Parks —
 
 </div>
 
