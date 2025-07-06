@@ -1,8 +1,8 @@
 <div align="center">
 
-> I have learned over the years that when one’s mind is made up, this diminishes fear.
+> Every journey begins with a single step. We just have to have patience.
 
-> — Rosa Parks —
+> — Milly Thompson —
 
 </div>
 
