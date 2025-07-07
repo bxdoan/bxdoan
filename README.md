@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every journey begins with a single step. We just have to have patience.
+> The future belongs to those who believe in the beauty of their dreams.
 
-> — Milly Thompson —
+> — Eleanor Roosevelt —
 
 </div>
 
