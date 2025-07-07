@@ -1,8 +1,8 @@
 <div align="center">
 
-> The future belongs to those who believe in the beauty of their dreams.
+> When I let go of what I am, I become what I might be.
 
-> — Eleanor Roosevelt —
+> — Lao Tzu —
 
 </div>
 
