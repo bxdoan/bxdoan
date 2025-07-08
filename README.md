@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
+> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
 
-> — Gildarts Clive —
+> — Henry Ford —
 
 </div>
 
