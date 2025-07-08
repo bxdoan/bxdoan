@@ -1,8 +1,8 @@
 <div align="center">
 
-> When I let go of what I am, I become what I might be.
+> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
 
-> — Lao Tzu —
+> — Gildarts Clive —
 
 </div>
 
