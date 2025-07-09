@@ -1,8 +1,8 @@
 <div align="center">
 
-> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
+> The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.
 
-> — Henry Ford —
+> — Roy Mustang —
 
 </div>
 
