@@ -1,8 +1,8 @@
 <div align="center">
 
-> The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Roy Mustang —
+> — Henry David Thoreau —
 
 </div>
 
