@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> You become what you believe.
 
-> — Henry David Thoreau —
+> — Oprah Winfrey —
 
 </div>
 
