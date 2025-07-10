@@ -1,8 +1,8 @@
 <div align="center">
 
-> You become what you believe.
+> Life is 10% what happens to me and 90% of how I react to it.
 
-> — Oprah Winfrey —
+> — Charles Swindoll —
 
 </div>
 
