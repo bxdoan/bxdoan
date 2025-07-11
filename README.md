@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only way to do great work is to love what you do.
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Steve Jobs —
+> — Alibaba Saluja —
 
 </div>
 
