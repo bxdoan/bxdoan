@@ -1,8 +1,8 @@
 <div align="center">
 
-> Reject common sense to make the impossible possible.
+> There are no traffic jams along the extra mile.
 
-> — Simon —
+> — Roger Staubach —
 
 </div>
 
