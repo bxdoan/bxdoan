@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no traffic jams along the extra mile.
+> I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
 
-> — Roger Staubach —
+> — Leonardo da Vinci —
 
 </div>
 
