@@ -1,8 +1,8 @@
 <div align="center">
 
-> I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
+> We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever.
 
-> — Leonardo da Vinci —
+> — Hitsugaya Toshiro —
 
 </div>
 
