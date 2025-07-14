@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — Allen Walker —
+> — Unknown —
 
 </div>
 
