@@ -1,8 +1,8 @@
 <div align="center">
 
-> We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Hitsugaya Toshiro —
+> — Allen Walker —
 
 </div>
 
