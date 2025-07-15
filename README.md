@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak is nothing to be ashamed of… Staying weak is !!
+> Every journey begins with a single step. We just have to have patience.
 
-> — Fuegoleon Vermillion —
+> — Milly Thompson —
 
 </div>
 
