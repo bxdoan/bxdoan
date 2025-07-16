@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every journey begins with a single step. We just have to have patience.
+> If you re gonna hit it hit it until it breaks
 
-> — Milly Thompson —
+> — Tooru Oikawa —
 
 </div>
 
