@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you re gonna hit it hit it until it breaks
+> The only person you are destined to become is the person you decide to be.
 
-> — Tooru Oikawa —
+> — Ralph Waldo Emerson —
 
 </div>
 
