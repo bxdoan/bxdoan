@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not final, failure is not fatal: It is the courage to continue that counts.
+> There are no traffic jams along the extra mile.
 
-> — Winston Churchill —
+> — Roger Staubach —
 
 </div>
 
