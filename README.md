@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Success is not final, failure is not fatal: It is the courage to continue that counts.
 
-> — Ralph Waldo Emerson —
+> — Winston Churchill —
 
 </div>
 
