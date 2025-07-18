@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no traffic jams along the extra mile.
+> I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for.
 
-> — Roger Staubach —
+> — Julis Alexia Van Riessfeld —
 
 </div>
 
