@@ -1,8 +1,8 @@
 <div align="center">
 
-> Build your own dreams, or someone else will hire you to build theirs.
+> If you really want to be strong… Stop caring about what your surrounding thinks of you!
 
-> — Farrah Gray —
+> — Saitama —
 
 </div>
 
