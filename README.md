@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own.
+> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
 
-> — Jiraiya —
+> — Ann Landers —
 
 </div>
 
