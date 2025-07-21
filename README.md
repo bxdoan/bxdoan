@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
+> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
 
-> — Ann Landers —
+> — Helen Keller —
 
 </div>
 
