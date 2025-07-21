@@ -1,8 +1,8 @@
 <div align="center">
 
-> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
+> You can die anytime, but living takes true courage.
 
-> — Helen Keller —
+> — Kenshin Himura —
 
 </div>
 
