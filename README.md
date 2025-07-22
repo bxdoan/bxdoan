@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do you need a reason to not want to lose
+> You can die anytime, but living takes true courage.
 
-> — Shoyo Hinata —
+> — Himura Kenshin —
 
 </div>
 
