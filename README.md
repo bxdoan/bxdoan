@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision.
+> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
 
-> — Erwin Smith —
+> — Helen Keller —
 
 </div>
 
