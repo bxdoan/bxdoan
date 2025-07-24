@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s just pathetic to give up on something before you even give it a shot.
+> If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision.
 
-> — Reiko Mikami —
+> — Erwin Smith —
 
 </div>
 
