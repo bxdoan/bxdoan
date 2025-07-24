@@ -1,8 +1,8 @@
 <div align="center">
 
-> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
+> It’s just pathetic to give up on something before you even give it a shot.
 
-> — Helen Keller —
+> — Reiko Mikami —
 
 </div>
 
