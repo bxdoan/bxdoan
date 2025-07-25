@@ -1,8 +1,8 @@
 <div align="center">
 
-> If the wind will not serve, take to the oars.
+> Simplicity is the easiest path to true beauty.
 
-> — Latin Proverb —
+> — Seishuu Handa —
 
 </div>
 
