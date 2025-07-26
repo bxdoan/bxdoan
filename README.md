@@ -1,8 +1,8 @@
 <div align="center">
 
-> Simplicity is the easiest path to true beauty.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Seishuu Handa —
+> — Pablo Picasso —
 
 </div>
 
