@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
 
-> — Pablo Picasso —
+> — Maya Angelou —
 
 </div>
 
