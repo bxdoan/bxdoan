@@ -1,8 +1,8 @@
 <div align="center">
 
-> Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward.
+> Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it.
 
-> — Saitama —
+> — Kyousuke Natsume —
 
 </div>
 
