@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
+> Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward.
 
-> — Maya Angelou —
+> — Saitama —
 
 </div>
 
