@@ -1,8 +1,8 @@
 <div align="center">
 
-> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
+> Don’t beg for things. Do it yourself, or else you won’t get anything.
 
-> — Erica Jong —
+> — Renton Thurston —
 
 </div>
 
