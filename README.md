@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
+> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
 
-> — Hatsu Kominato —
+> — Erica Jong —
 
 </div>
 
