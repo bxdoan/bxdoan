@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t beg for things. Do it yourself, or else you won’t get anything.
+> If you want your children to turn out well, spend twice as much time with them, and half as much money.
 
-> — Renton Thurston —
+> — Abigail Van Buren —
 
 </div>
 
