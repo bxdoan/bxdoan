@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want your children to turn out well, spend twice as much time with them, and half as much money.
+> Being the best decoy ever is as cool as being the ace
 
-> — Abigail Van Buren —
+> — Tobio Kageyama —
 
 </div>
 
