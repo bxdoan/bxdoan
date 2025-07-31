@@ -1,8 +1,8 @@
 <div align="center">
 
-> All we can do is live until the day we die. Control what we can…and fly free.
+> What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do.
 
-> — Deneil Young —
+> — Bob Dylan —
 
 </div>
 
