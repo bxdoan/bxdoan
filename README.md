@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being the best decoy ever is as cool as being the ace
+> All we can do is live until the day we die. Control what we can…and fly free.
 
-> — Tobio Kageyama —
+> — Deneil Young —
 
 </div>
 
