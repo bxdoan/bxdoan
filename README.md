@@ -1,8 +1,8 @@
 <div align="center">
 
-> What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do.
+> The greatest glory in living lies not in never falling, but in rising every time we fall.
 
-> — Bob Dylan —
+> — Nelson Mandela —
 
 </div>
 
