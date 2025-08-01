@@ -1,8 +1,8 @@
 <div align="center">
 
-> The greatest glory in living lies not in never falling, but in rising every time we fall.
+> In the middle of every difficulty lies opportunity.
 
-> — Nelson Mandela —
+> — Albert Einstein —
 
 </div>
 
