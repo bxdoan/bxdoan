@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
 
-> — Zig Ziglar —
+> — Jesse Owens —
 
 </div>
 
