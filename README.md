@@ -1,8 +1,8 @@
 <div align="center">
 
-> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Jesse Owens —
+> — Touko Aozaki —
 
 </div>
 
