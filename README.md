@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most common way people give up their power is by thinking they don’t have any.
+> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
 
-> — Alice Walker —
+> — Ann Landers —
 
 </div>
 
