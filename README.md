@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> The most common way people give up their power is by thinking they don’t have any.
 
-> — Touko Aozaki —
+> — Alice Walker —
 
 </div>
 
