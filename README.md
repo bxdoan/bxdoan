@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can fly even higher
+> Dream big and dare to fail.
 
-> — Tobio Kageyama —
+> — Norman Vaughan —
 
 </div>
 
