@@ -1,8 +1,8 @@
 <div align="center">
 
-> Dream big and dare to fail.
+> A person who never made a mistake never tried anything new.
 
-> — Norman Vaughan —
+> —  Albert Einstein —
 
 </div>
 
