@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person who never made a mistake never tried anything new.
+> An unexamined life is not worth living.
 
-> —  Albert Einstein —
+> — Socrates —
 
 </div>
 
