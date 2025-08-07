@@ -1,8 +1,8 @@
 <div align="center">
 
-> An unexamined life is not worth living.
+> Winning isn’t everything, but wanting to win is.
 
-> — Socrates —
+> — Vince Lombardi —
 
 </div>
 
