@@ -1,8 +1,8 @@
 <div align="center">
 
-> Winning isn’t everything, but wanting to win is.
+> Being weak is nothing to be ashamed of… Staying weak is !!
 
-> — Vince Lombardi —
+> — Fuegoleon Vermillion —
 
 </div>
 
