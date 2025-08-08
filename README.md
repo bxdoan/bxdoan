@@ -1,8 +1,8 @@
 <div align="center">
 
-> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> — Juuzou Suzuya —
+> — Hange Zoë —
 
 </div>
 
