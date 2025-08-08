@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak is nothing to be ashamed of… Staying weak is !!
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Fuegoleon Vermillion —
+> — Juuzou Suzuya —
 
 </div>
 
