@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what happens to you while you’re busy making other plans.
+> The only person you are destined to become is the person you decide to be.
 
-> — John Lennon —
+> — Ralph Waldo Emerson —
 
 </div>
 
