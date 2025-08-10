@@ -1,8 +1,8 @@
 <div align="center">
 
-> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
+> Happiness is not something readymade.  It comes from your own actions.
 
-> — Alibaba Saluja —
+> — Dalai Lama —
 
 </div>
 
