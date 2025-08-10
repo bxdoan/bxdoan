@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Ralph Waldo Emerson —
+> — Alibaba Saluja —
 
 </div>
 
