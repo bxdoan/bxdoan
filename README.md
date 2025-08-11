@@ -1,8 +1,8 @@
 <div align="center">
 
-> Remember no one can make you feel inferior without your consent.
+> We can’t waste time worrying about the what if’s.
 
-> — Eleanor Roosevelt —
+> — Ichigo Kurosaki —
 
 </div>
 
