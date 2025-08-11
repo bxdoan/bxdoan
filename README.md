@@ -1,8 +1,8 @@
 <div align="center">
 
-> Happiness is not something readymade.  It comes from your own actions.
+> Remember no one can make you feel inferior without your consent.
 
-> — Dalai Lama —
+> — Eleanor Roosevelt —
 
 </div>
 
