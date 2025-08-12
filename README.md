@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t waste time worrying about the what if’s.
+> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
 
-> — Ichigo Kurosaki —
+> — Tobio Kageyama —
 
 </div>
 
