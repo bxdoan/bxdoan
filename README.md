@@ -1,8 +1,8 @@
 <div align="center">
 
-> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
+> The only way to do great work is to love what you do.
 
-> — Tobio Kageyama —
+> — Steve Jobs —
 
 </div>
 
