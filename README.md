@@ -1,8 +1,8 @@
 <div align="center">
 
-> The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.
+> Teach thy tongue to say, “I do not know,” and thous shalt progress.
 
-> — Roy Mustang —
+> — Maimonides —
 
 </div>
 
