@@ -1,8 +1,8 @@
 <div align="center">
 
-> Teach thy tongue to say, “I do not know,” and thous shalt progress.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Maimonides —
+> — Henry David Thoreau —
 
 </div>
 
