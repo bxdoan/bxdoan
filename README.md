@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
 
-> — Henry David Thoreau —
+> — Miss Kobayashi —
 
 </div>
 
