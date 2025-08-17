@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
 
-> — Ralph Waldo Emerson —
+> — Junichirou Kagami —
 
 </div>
 
