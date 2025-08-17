@@ -1,8 +1,8 @@
 <div align="center">
 
-> Too many of us are not living our dreams because we are living our fears.
+> The only person you are destined to become is the person you decide to be.
 
-> — Les Brown —
+> — Ralph Waldo Emerson —
 
 </div>
 
