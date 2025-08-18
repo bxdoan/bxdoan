@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything you’ve ever wanted is on the other side of fear.
+> Forgetting is like a wound. The wound may heal, but it has already left a scar.
 
-> — George Addair —
+> — Monkey D Luffy —
 
 </div>
 
