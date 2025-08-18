@@ -1,8 +1,8 @@
 <div align="center">
 
-> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
+> Everything you’ve ever wanted is on the other side of fear.
 
-> — Junichirou Kagami —
+> — George Addair —
 
 </div>
 
