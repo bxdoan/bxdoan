@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no regrets. If one can be proud of one’s life, one should not wish for another chance.
+> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
 
-> — Saber —
+> — Erma Bombeck —
 
 </div>
 
