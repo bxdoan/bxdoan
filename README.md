@@ -1,8 +1,8 @@
 <div align="center">
 
-> Forgetting is like a wound. The wound may heal, but it has already left a scar.
+> There are no regrets. If one can be proud of one’s life, one should not wish for another chance.
 
-> — Monkey D Luffy —
+> — Saber —
 
 </div>
 
