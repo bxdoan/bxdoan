@@ -1,8 +1,8 @@
 <div align="center">
 
-> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least
+> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
 
-> — Levi Ackerman —
+> — Sebastian Michaelis —
 
 </div>
 
