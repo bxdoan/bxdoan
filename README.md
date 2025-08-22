@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you do, enjoy it to the fullest. That is the secret of life.
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> — Rider —
+> — Hange Zoë —
 
 </div>
 
