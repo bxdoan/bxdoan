@@ -1,8 +1,8 @@
 <div align="center">
 
-> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
+> If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.
 
-> — Tobio Kageyama —
+> — Oprah Winfrey —
 
 </div>
 
