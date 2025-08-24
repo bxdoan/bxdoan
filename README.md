@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no regrets. If one can be proud of one’s life, one should not wish for another chance.
+> Dream big and dare to fail.
 
-> — Saber —
+> — Norman Vaughan —
 
 </div>
 
