@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing!
+> There are no regrets. If one can be proud of one’s life, one should not wish for another chance.
 
-> — Satsuki Kiryuuin —
+> — Saber —
 
 </div>
 
