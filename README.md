@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what happens to you while you’re busy making other plans.
+> Reject common sense to make the impossible possible.
 
-> — John Lennon —
+> — Simon —
 
 </div>
 
