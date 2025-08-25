@@ -1,8 +1,8 @@
 <div align="center">
 
-> Dream big and dare to fail.
+> Life is what happens to you while you’re busy making other plans.
 
-> — Norman Vaughan —
+> — John Lennon —
 
 </div>
 
