@@ -1,8 +1,8 @@
 <div align="center">
 
-> We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever.
+> Every journey begins with a single step. We just have to have patience.
 
-> — Hitsugaya Toshiro —
+> — Milly Thompson —
 
 </div>
 
