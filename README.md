@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
 
-> — Tony Robbins —
+> — Princess Lenessia —
 
 </div>
 
