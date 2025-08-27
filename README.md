@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every journey begins with a single step. We just have to have patience.
+> If you do what you’ve always done, you’ll get what you’ve always gotten.
 
-> — Milly Thompson —
+> — Tony Robbins —
 
 </div>
 
