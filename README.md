@@ -1,8 +1,8 @@
 <div align="center">
 
-> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
+> The only limit to our realization of tomorrow will be our doubts of today.
 
-> — Princess Lenessia —
+> — Franklin D. Roosevelt —
 
 </div>
 
