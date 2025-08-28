@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only limit to our realization of tomorrow will be our doubts of today.
+> Whether you think you can or you think you can’t, you’re right.
 
-> — Franklin D. Roosevelt —
+> — Henry Ford —
 
 </div>
 
