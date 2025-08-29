@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whether you think you can or you think you can’t, you’re right.
+> I’ll leave tomorrow’s problems to tomorrow’s me.
 
-> — Henry Ford —
+> — Saitama —
 
 </div>
 
