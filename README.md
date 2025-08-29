@@ -1,8 +1,8 @@
 <div align="center">
 
-> I’ll leave tomorrow’s problems to tomorrow’s me.
+> In order to succeed, your desire for success should be greater than your fear of failure.
 
-> — Saitama —
+> — Bill Cosby —
 
 </div>
 
