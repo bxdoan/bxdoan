@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life s a bore if you don t challenge yourself
+> The moment you think of giving up, think of the reason why you held on so long.
 
-> — Yuu Nishinoya —
+> — Natsu Dragneel —
 
 </div>
 
