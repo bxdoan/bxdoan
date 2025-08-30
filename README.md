@@ -1,8 +1,8 @@
 <div align="center">
 
-> In order to succeed, your desire for success should be greater than your fear of failure.
+> Life s a bore if you don t challenge yourself
 
-> — Bill Cosby —
+> — Yuu Nishinoya —
 
 </div>
 
