@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> I refuse to let my fear control me anymore.
 
-> — Pablo Picasso —
+> — Maka Albarn —
 
 </div>
 
