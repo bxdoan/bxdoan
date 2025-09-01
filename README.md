@@ -1,8 +1,8 @@
 <div align="center">
 
-> I refuse to let my fear control me anymore.
+> As Long As We Continue To Fight We Are Not Defeated
 
-> — Maka Albarn —
+> — Miche Zacharius —
 
 </div>
 
