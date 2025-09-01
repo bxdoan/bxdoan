@@ -1,8 +1,8 @@
 <div align="center">
 
-> As Long As We Continue To Fight We Are Not Defeated
+> To act is not necessarily compassion. True compassion sometimes comes from inaction.
 
-> — Miche Zacharius —
+> — Hinata Miyake —
 
 </div>
 
