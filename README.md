@@ -1,8 +1,8 @@
 <div align="center">
 
-> To act is not necessarily compassion. True compassion sometimes comes from inaction.
+> 
 
-> — Hinata Miyake —
+> —  —
 
 </div>
 
