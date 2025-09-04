@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life.
+> Every journey begins with a single step. We just have to have patience.
 
-> — Mion Sonozaki —
+> — Milly Thompson —
 
 </div>
 
