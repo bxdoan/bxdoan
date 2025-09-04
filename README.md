@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every journey begins with a single step. We just have to have patience.
+> A place where someone still thinks about you is a place you can call home.
 
-> — Milly Thompson —
+> — Jiraiya —
 
 </div>
 
