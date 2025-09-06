@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t do something, then don’t. Focus on what you can do.
+> There are some flowers you only see when you take detours
 
-> — Shiroe —
+> — Tanaka Saeko —
 
 </div>
 
