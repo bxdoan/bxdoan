@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are some flowers you only see when you take detours
+> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
 
-> — Tanaka Saeko —
+> — Mark Twain —
 
 </div>
 
