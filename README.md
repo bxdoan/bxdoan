@@ -1,8 +1,8 @@
 <div align="center">
 
-> The question isn’t who is going to let me; it’s who is going to stop me.
+> Life is what happens to you while you’re busy making other plans.
 
-> — Ayn Rand —
+> — John Lennon —
 
 </div>
 
