@@ -1,8 +1,8 @@
 <div align="center">
 
-> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
+> The question isn’t who is going to let me; it’s who is going to stop me.
 
-> — Mark Twain —
+> — Ayn Rand —
 
 </div>
 
