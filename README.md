@@ -1,8 +1,8 @@
 <div align="center">
 
-> The most difficult thing is the decision to act, the rest is merely tenacity.
+> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
 
-> — Amelia Earhart —
+> — Princess Lenessia —
 
 </div>
 
