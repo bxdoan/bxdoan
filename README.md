@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what happens to you while you’re busy making other plans.
+> The most difficult thing is the decision to act, the rest is merely tenacity.
 
-> — John Lennon —
+> — Amelia Earhart —
 
 </div>
 
