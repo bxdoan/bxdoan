@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
+> The only way to do great work is to love what you do.
 
-> — Mae Jemison —
+> — Steve Jobs —
 
 </div>
 
