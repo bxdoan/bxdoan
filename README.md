@@ -1,8 +1,8 @@
 <div align="center">
 
-> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
+> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
 
-> — Princess Lenessia —
+> — Mae Jemison —
 
 </div>
 
