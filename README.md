@@ -1,8 +1,8 @@
 <div align="center">
 
-> Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover.
+> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
 
-> — Mark Twain —
+> — Mae Jemison —
 
 </div>
 
