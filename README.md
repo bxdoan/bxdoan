@@ -1,8 +1,8 @@
 <div align="center">
 
-> When I let go of what I am, I become what I might be.
+> Life is what we make it, always has been, always will be.
 
-> — Lao Tzu —
+> — Grandma Moses —
 
 </div>
 
