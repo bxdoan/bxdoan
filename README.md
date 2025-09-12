@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything has beauty, but not everyone can see.
+> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
 
-> — Confucius —
+> — Booker T. Washington —
 
 </div>
 
