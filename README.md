@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> Everything has beauty, but not everyone can see.
 
-> — Grandma Moses —
+> — Confucius —
 
 </div>
 
