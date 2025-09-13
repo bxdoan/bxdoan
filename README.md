@@ -1,8 +1,8 @@
 <div align="center">
 
-> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — Booker T. Washington —
+> — Napoleon Hill —
 
 </div>
 
