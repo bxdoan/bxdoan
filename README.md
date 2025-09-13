@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever the mind of man can conceive and believe, it can achieve.
+> Every journey begins with a single step. We just have to have patience.
 
-> — Napoleon Hill —
+> — Milly Thompson —
 
 </div>
 
