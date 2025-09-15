@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t do something, then don’t. Focus on what you can do.
+> Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward.
 
-> — Shiroe —
+> — Saitama —
 
 </div>
 
