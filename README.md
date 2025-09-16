@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want to lift yourself up, lift up someone else.
+> I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
 
-> — Booker T. Washington —
+> — Leonardo da Vinci —
 
 </div>
 
