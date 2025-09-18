@@ -1,8 +1,8 @@
 <div align="center">
 
-> You miss 100% of the shots you don’t take.
+> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
 
-> — Wayne Gretzky —
+> — Sebastian Michaelis —
 
 </div>
 
