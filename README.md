@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
+> If you can dream it, you can achieve it.
 
-> — Sebastian Michaelis —
+> — Zig Ziglar —
 
 </div>
 
