@@ -1,8 +1,8 @@
 <div align="center">
 
-> Go confidently in the direction of your dreams.  Live the life you have imagined.
+> Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!
 
-> — Henry David Thoreau —
+> — Izuku Midoriya —
 
 </div>
 
