@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Go confidently in the direction of your dreams.  Live the life you have imagined.
 
-> — Zig Ziglar —
+> — Henry David Thoreau —
 
 </div>
 
