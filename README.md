@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it.
+> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
 
-> — Naruto Uzumaki —
+> — Matsumoto Rangiku —
 
 </div>
 
