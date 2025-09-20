@@ -1,8 +1,8 @@
 <div align="center">
 
-> Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!
+> If you don’t like your destiny, don’t accept it.
 
-> — Izuku Midoriya —
+> — Naruto Uzumaki —
 
 </div>
 
