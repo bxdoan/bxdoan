@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> You can’t always hold on to the things that are important. By letting them go we gain something else.
 
-> — Matsumoto Rangiku —
+> — Kunio Yaobi —
 
 </div>
 
