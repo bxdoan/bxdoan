@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t always hold on to the things that are important. By letting them go we gain something else.
+> Definiteness of purpose is the starting point of all achievement.
 
-> — Kunio Yaobi —
+> — W. Clement Stone —
 
 </div>
 
