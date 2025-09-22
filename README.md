@@ -1,8 +1,8 @@
 <div align="center">
 
-> Definiteness of purpose is the starting point of all achievement.
+> You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground.
 
-> — W. Clement Stone —
+> — Unknown —
 
 </div>
 
