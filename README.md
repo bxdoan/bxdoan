@@ -1,8 +1,8 @@
 <div align="center">
 
-> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
+> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
 
-> — Miss Kobayashi —
+> — Matsumoto Rangiku —
 
 </div>
 
