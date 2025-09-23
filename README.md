@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> Life is what we make it, always has been, always will be.
 
-> — Matsumoto Rangiku —
+> — Grandma Moses —
 
 </div>
 
