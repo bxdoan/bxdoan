@@ -1,8 +1,8 @@
 <div align="center">
 
-> Eighty percent of success is showing up.
+> It’s just pathetic to give up on something before you even give it a shot.
 
-> — Woody Allen —
+> — Reiko Mikami —
 
 </div>
 
