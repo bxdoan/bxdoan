@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> Eighty percent of success is showing up.
 
-> — Grandma Moses —
+> — Woody Allen —
 
 </div>
 
