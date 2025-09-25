@@ -1,8 +1,8 @@
 <div align="center">
 
-> There’s no shame in falling down! True shame is to not stand up again!
+> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
 
-> — Shintar Midorima —
+> — Helen Keller —
 
 </div>
 
