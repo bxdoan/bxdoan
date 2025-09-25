@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s just pathetic to give up on something before you even give it a shot.
+> There’s no shame in falling down! True shame is to not stand up again!
 
-> — Reiko Mikami —
+> — Shintar Midorima —
 
 </div>
 
