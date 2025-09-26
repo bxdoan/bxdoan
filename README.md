@@ -1,8 +1,8 @@
 <div align="center">
 
-> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
+> The two most important days in your life are the day you are born and the day you find out why.
 
-> — Helen Keller —
+> — Mark Twain —
 
 </div>
 
