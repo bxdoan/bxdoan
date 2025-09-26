@@ -1,8 +1,8 @@
 <div align="center">
 
-> The two most important days in your life are the day you are born and the day you find out why.
+> The best time to plant a tree was 20 years ago. The second best time is now.
 
-> — Mark Twain —
+> — Chinese Proverb —
 
 </div>
 
