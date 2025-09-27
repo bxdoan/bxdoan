@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best time to plant a tree was 20 years ago. The second best time is now.
+> Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.
 
-> — Chinese Proverb —
+> — Gilgamesh —
 
 </div>
 
