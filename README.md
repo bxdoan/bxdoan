@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it.
+> It is never too late to be what you might have been.
 
-> — Naruto Uzumaki —
+> — George Eliot —
 
 </div>
 
