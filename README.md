@@ -1,8 +1,8 @@
 <div align="center">
 
-> In the middle of every difficulty lies opportunity.
+> If you don’t like your destiny, don’t accept it.
 
-> — Albert Einstein —
+> — Naruto Uzumaki —
 
 </div>
 
