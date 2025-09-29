@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
+> You can’t always hold on to the things that are important. By letting them go we gain something else.
 
-> — Ann Landers —
+> — Kunio Yaobi —
 
 </div>
 
