@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is never too late to be what you might have been.
+> It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.
 
-> — George Eliot —
+> — Ann Landers —
 
 </div>
 
