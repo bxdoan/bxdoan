@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t always hold on to the things that are important. By letting them go we gain something else.
+> I didn’t fail the test. I just found 100 ways to do it wrong.
 
-> — Kunio Yaobi —
+> — Benjamin Franklin —
 
 </div>
 
