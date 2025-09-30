@@ -1,8 +1,8 @@
 <div align="center">
 
-> I didn’t fail the test. I just found 100 ways to do it wrong.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Benjamin Franklin —
+> — Touko Aozaki —
 
 </div>
 
