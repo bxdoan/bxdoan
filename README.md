@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Either you run the day, or the day runs you.
 
-> — Zig Ziglar —
+> — Jim Rohn —
 
 </div>
 
