@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> If you can dream it, you can achieve it.
 
-> — Touko Aozaki —
+> — Zig Ziglar —
 
 </div>
 
