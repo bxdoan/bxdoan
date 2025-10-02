@@ -1,8 +1,8 @@
 <div align="center">
 
-> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
+> All we can do is live until the day we die. Control what we can…and fly free.
 
-> — Miss Kobayashi —
+> — Deneil Young —
 
 </div>
 
