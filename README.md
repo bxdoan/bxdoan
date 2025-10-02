@@ -1,8 +1,8 @@
 <div align="center">
 
-> Either you run the day, or the day runs you.
+> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer.
 
-> — Jim Rohn —
+> — Miss Kobayashi —
 
 </div>
 
