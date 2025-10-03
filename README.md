@@ -1,8 +1,8 @@
 <div align="center">
 
-> All we can do is live until the day we die. Control what we can…and fly free.
+> You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face.
 
-> — Deneil Young —
+> — Roronoa Zoro —
 
 </div>
 
