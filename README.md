@@ -1,8 +1,8 @@
 <div align="center">
 
-> Education costs money.  But then so does ignorance.
+> When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey.
 
-> — Sir Claus Moser —
+> — Hinata Miyake —
 
 </div>
 
