@@ -1,8 +1,8 @@
 <div align="center">
 
-> Dreaming, after all, is a form of planning.
+> Education costs money.  But then so does ignorance.
 
-> — Gloria Steinem —
+> — Sir Claus Moser —
 
 </div>
 
