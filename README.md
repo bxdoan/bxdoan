@@ -1,8 +1,8 @@
 <div align="center">
 
-> The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.
+> If you can’t do something, then don’t. Focus on what you can do.
 
-> — Roy Mustang —
+> — Shiroe —
 
 </div>
 
