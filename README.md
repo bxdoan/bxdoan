@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey.
+> The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.
 
-> — Hinata Miyake —
+> — Roy Mustang —
 
 </div>
 
