@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t do something, then don’t. Focus on what you can do.
+> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
 
-> — Shiroe —
+> — Maya Angelou —
 
 </div>
 
