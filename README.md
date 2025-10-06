@@ -1,8 +1,8 @@
 <div align="center">
 
-> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Maya Angelou —
+> — Pablo Picasso —
 
 </div>
 
