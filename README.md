@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t help everyone, but everyone can help someone.
+> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
 
-> — Ronald Reagan —
+> — Erza Scarlet —
 
 </div>
 
