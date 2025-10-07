@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> We can’t help everyone, but everyone can help someone.
 
-> — Pablo Picasso —
+> — Ronald Reagan —
 
 </div>
 
