@@ -1,8 +1,8 @@
 <div align="center">
 
-> The greatest pleasure in life is doing what people say you cannot do.
+> Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife.
 
-> — Walter Bagehot —
+> — Paine —
 
 </div>
 
