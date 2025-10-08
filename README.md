@@ -1,8 +1,8 @@
 <div align="center">
 
-> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
+> The greatest pleasure in life is doing what people say you cannot do.
 
-> — Erza Scarlet —
+> — Walter Bagehot —
 
 </div>
 
