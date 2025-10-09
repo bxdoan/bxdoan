@@ -1,8 +1,8 @@
 <div align="center">
 
-> Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife.
+> Life is not a game of luck. If you wanna win, work hard.
 
-> — Paine —
+> — Sora —
 
 </div>
 
