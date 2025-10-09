@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not a game of luck. If you wanna win, work hard.
+> Remember no one can make you feel inferior without your consent.
 
-> — Sora —
+> — Eleanor Roosevelt —
 
 </div>
 
