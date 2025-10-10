@@ -1,8 +1,8 @@
 <div align="center">
 
-> Remember no one can make you feel inferior without your consent.
+> If you don’t like your destiny, don’t accept it.
 
-> — Eleanor Roosevelt —
+> — Naruto Uzumaki —
 
 </div>
 
