@@ -1,8 +1,8 @@
 <div align="center">
 
-> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
+> Fall seven times and stand up eight.
 
-> — Juuzou Suzuya —
+> — Japanese Proverb —
 
 </div>
 
