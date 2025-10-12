@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
+> Life s a bore if you don t challenge yourself
 
-> — Maya Angelou —
+> — Yuu Nishinoya —
 
 </div>
 
