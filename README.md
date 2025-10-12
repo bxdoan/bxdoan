@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
 
-> — Japanese Proverb —
+> — Maya Angelou —
 
 </div>
 
