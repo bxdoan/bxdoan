@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life s a bore if you don t challenge yourself
+> There’s no shame in falling down! True shame is to not stand up again!
 
-> — Yuu Nishinoya —
+> — Shintar Midorima —
 
 </div>
 
