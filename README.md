@@ -1,8 +1,8 @@
 <div align="center">
 
-> There’s no shame in falling down! True shame is to not stand up again!
+> If you re gonna hit it hit it until it breaks
 
-> — Shintar Midorima —
+> — Tooru Oikawa —
 
 </div>
 
