@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you re gonna hit it hit it until it breaks
+> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
 
-> — Tooru Oikawa —
+> — Yato —
 
 </div>
 
