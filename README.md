@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
+> I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed.
 
-> — Yato —
+> — Michael Jordan —
 
 </div>
 
