@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do what you can, where you are, with what you have.
+> To act is not necessarily compassion. True compassion sometimes comes from inaction.
 
-> — Teddy Roosevelt —
+> — Hinata Miyake —
 
 </div>
 
