@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being the best decoy ever is as cool as being the ace
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Tobio Kageyama —
+> — Alibaba Saluja —
 
 </div>
 
