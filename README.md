@@ -1,8 +1,8 @@
 <div align="center">
 
-> To act is not necessarily compassion. True compassion sometimes comes from inaction.
+> Being the best decoy ever is as cool as being the ace
 
-> — Hinata Miyake —
+> — Tobio Kageyama —
 
 </div>
 
