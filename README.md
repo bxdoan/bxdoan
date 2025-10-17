@@ -1,8 +1,8 @@
 <div align="center">
 
-> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
+> Certain things catch your eye, but pursue only those that capture the heart.
 
-> — Alibaba Saluja —
+> —  Ancient Indian Proverb —
 
 </div>
 
