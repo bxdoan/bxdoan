@@ -1,8 +1,8 @@
 <div align="center">
 
-> Certain things catch your eye, but pursue only those that capture the heart.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> —  Ancient Indian Proverb —
+> — Napoleon Hill —
 
 </div>
 
