@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever the mind of man can conceive and believe, it can achieve.
+> There are no traffic jams along the extra mile.
 
-> — Napoleon Hill —
+> — Roger Staubach —
 
 </div>
 
