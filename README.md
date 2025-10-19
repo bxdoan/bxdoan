@@ -1,8 +1,8 @@
 <div align="center">
 
-> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
+> Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end.
 
-> — Erma Bombeck —
+> — Clare —
 
 </div>
 
