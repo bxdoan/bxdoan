@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> I am not a product of my circumstances. I am a product of my decisions.
 
-> — Pablo Picasso —
+> — Stephen Covey —
 
 </div>
 
