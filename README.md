@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t always hold on to the things that are important. By letting them go we gain something else.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Kunio Yaobi —
+> — Pablo Picasso —
 
 </div>
 
