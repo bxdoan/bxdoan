@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
+> Simplicity is the easiest path to true beauty.
 
-> — Marie Curie —
+> — Seishuu Handa —
 
 </div>
 
