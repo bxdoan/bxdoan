@@ -1,8 +1,8 @@
 <div align="center">
 
-> I am not a product of my circumstances. I am a product of my decisions.
+> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
 
-> — Stephen Covey —
+> — Marie Curie —
 
 </div>
 
