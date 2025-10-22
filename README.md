@@ -1,8 +1,8 @@
 <div align="center">
 
-> Simplicity is the easiest path to true beauty.
+> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
 
-> — Seishuu Handa —
+> — Matsumoto Rangiku —
 
 </div>
 
