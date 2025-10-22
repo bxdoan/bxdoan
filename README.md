@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> You may be disappointed if you fail, but you are doomed if you don’t try.
 
-> — Matsumoto Rangiku —
+> — Beverly Sills —
 
 </div>
 
