@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
+> Life isn’t about getting and having, it’s about giving and being.
 
-> — Sheryl Sandberg —
+> — Kevin Kruse —
 
 </div>
 
