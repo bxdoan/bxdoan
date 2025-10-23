@@ -1,8 +1,8 @@
 <div align="center">
 
-> You may be disappointed if you fail, but you are doomed if you don’t try.
+> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
 
-> — Beverly Sills —
+> — Sheryl Sandberg —
 
 </div>
 
