@@ -1,8 +1,8 @@
 <div align="center">
 
-> Certain things catch your eye, but pursue only those that capture the heart.
+> Either write something worth reading or do something worth writing.
 
-> —  Ancient Indian Proverb —
+> — Benjamin Franklin —
 
 </div>
 
