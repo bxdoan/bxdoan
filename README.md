@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life isn’t about getting and having, it’s about giving and being.
+> Certain things catch your eye, but pursue only those that capture the heart.
 
-> — Kevin Kruse —
+> —  Ancient Indian Proverb —
 
 </div>
 
