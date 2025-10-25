@@ -1,8 +1,8 @@
 <div align="center">
 
-> Either write something worth reading or do something worth writing.
+> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward.
 
-> — Benjamin Franklin —
+> — Sebastian Michaelis —
 
 </div>
 
