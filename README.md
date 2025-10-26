@@ -1,8 +1,8 @@
 <div align="center">
 
-> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
+> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 
-> — Jesse Owens —
+> — Albert Schweitzer —
 
 </div>
 
