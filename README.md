@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person who never made a mistake never tried anything new.
+> Life s a bore if you don t challenge yourself
 
-> —  Albert Einstein —
+> — Yuu Nishinoya —
 
 </div>
 
