@@ -1,8 +1,8 @@
 <div align="center">
 
-> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
+> If you really want to be strong… Stop caring about what your surrounding thinks of you!
 
-> — Erma Bombeck —
+> — Saitama —
 
 </div>
 
