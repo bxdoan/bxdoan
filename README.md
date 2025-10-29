@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you really want to be strong… Stop caring about what your surrounding thinks of you!
+> People’s lives don’t end when they die, it ends when they lose faith.
 
-> — Saitama —
+> — Itachi Uchiha —
 
 </div>
 
