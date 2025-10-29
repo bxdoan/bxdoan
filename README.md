@@ -1,8 +1,8 @@
 <div align="center">
 
-> People’s lives don’t end when they die, it ends when they lose faith.
+> In order to succeed, your desire for success should be greater than your fear of failure.
 
-> — Itachi Uchiha —
+> — Bill Cosby —
 
 </div>
 
