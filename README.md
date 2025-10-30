@@ -1,8 +1,8 @@
 <div align="center">
 
-> In order to succeed, your desire for success should be greater than your fear of failure.
+> How wonderful it is that nobody need wait a single moment before starting to improve the world.
 
-> — Bill Cosby —
+> — Anne Frank —
 
 </div>
 
