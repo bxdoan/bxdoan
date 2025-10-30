@@ -1,8 +1,8 @@
 <div align="center">
 
-> How wonderful it is that nobody need wait a single moment before starting to improve the world.
+> People who can’t throw something important away, can never hope to change anything.
 
-> — Anne Frank —
+> — Armin Arlelt —
 
 </div>
 
