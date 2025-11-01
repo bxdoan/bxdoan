@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best revenge is massive success.
+> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us.
 
-> — Frank Sinatra —
+> — Helen Keller —
 
 </div>
 
