@@ -1,8 +1,8 @@
 <div align="center">
 
-> Certain things catch your eye, but pursue only those that capture the heart.
+> You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.
 
-> —  Ancient Indian Proverb —
+> — Junichirou Kagami —
 
 </div>
 
