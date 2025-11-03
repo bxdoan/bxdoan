@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do you need a reason to not want to lose
+> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
 
-> — Shoyo Hinata —
+> — Jesus —
 
 </div>
 
