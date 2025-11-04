@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t find a reason to fight, then you shouldn’t be fighting.
+> The best revenge is massive success.
 
-> — Akame —
+> — Frank Sinatra —
 
 </div>
 
