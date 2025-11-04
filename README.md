@@ -1,8 +1,8 @@
 <div align="center">
 
-> Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.
+> If you can’t find a reason to fight, then you shouldn’t be fighting.
 
-> — Jesus —
+> — Akame —
 
 </div>
 
