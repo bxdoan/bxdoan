@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best revenge is massive success.
+> The only person you are destined to become is the person you decide to be.
 
-> — Frank Sinatra —
+> — Ralph Waldo Emerson —
 
 </div>
 
