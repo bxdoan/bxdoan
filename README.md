@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Ralph Waldo Emerson —
+> — Pablo Picasso —
 
 </div>
 
