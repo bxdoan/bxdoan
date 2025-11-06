@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> Reject common sense to make the impossible possible.
 
-> — Touko Aozaki —
+> — Simon —
 
 </div>
 
