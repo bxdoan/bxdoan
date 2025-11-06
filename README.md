@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Pablo Picasso —
+> — Touko Aozaki —
 
 </div>
 
