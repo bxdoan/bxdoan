@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
+> You can die anytime, but living takes true courage.
 
-> — Maya Angelou —
+> — Himura Kenshin —
 
 </div>
 
