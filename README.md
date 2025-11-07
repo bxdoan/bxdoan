@@ -1,8 +1,8 @@
 <div align="center">
 
-> Reject common sense to make the impossible possible.
+> Life is not measured by the number of breaths we take, but by the moments that take our breath away.
 
-> — Simon —
+> — Maya Angelou —
 
 </div>
 
