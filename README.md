@@ -1,8 +1,8 @@
 <div align="center">
 
-> Too many of us are not living our dreams because we are living our fears.
+> Your time is limited, so don’t waste it living someone else’s life.
 
-> — Les Brown —
+> — Steve Jobs —
 
 </div>
 
