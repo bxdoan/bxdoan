@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can die anytime, but living takes true courage.
+> Too many of us are not living our dreams because we are living our fears.
 
-> — Himura Kenshin —
+> — Les Brown —
 
 </div>
 
