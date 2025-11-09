@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
+> All we can do is live until the day we die. Control what we can…and fly free.
 
-> — Shintaro Midorima —
+> — Deneil Young —
 
 </div>
 
