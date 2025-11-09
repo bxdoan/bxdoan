@@ -1,8 +1,8 @@
 <div align="center">
 
-> Your time is limited, so don’t waste it living someone else’s life.
+> Don’t give up, there’s no shame in falling down! True shame is to not stand up again!
 
-> — Steve Jobs —
+> — Shintaro Midorima —
 
 </div>
 
