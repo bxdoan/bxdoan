@@ -1,8 +1,8 @@
 <div align="center">
 
-> All we can do is live until the day we die. Control what we can…and fly free.
+> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
 
-> — Deneil Young —
+> — Hatsu Kominato —
 
 </div>
 
