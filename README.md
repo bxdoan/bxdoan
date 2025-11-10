@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
+> If you re gonna hit it hit it until it breaks
 
-> — Hatsu Kominato —
+> — Tooru Oikawa —
 
 </div>
 
