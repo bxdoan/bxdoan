@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you re gonna hit it hit it until it breaks
+> People become stronger because they have memories they can’t forget.
 
-> — Tooru Oikawa —
+> — Tsunade —
 
 </div>
 
