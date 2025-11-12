@@ -1,8 +1,8 @@
 <div align="center">
 
-> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
+> We can’t waste time worrying about the what if’s.
 
-> — Hange Zoë —
+> — Ichigo Kurosaki —
 
 </div>
 
