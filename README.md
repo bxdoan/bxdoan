@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t waste time worrying about the what if’s.
+> You can’t use up creativity.  The more you use, the more you have.
 
-> — Ichigo Kurosaki —
+> — Maya Angelou —
 
 </div>
 
