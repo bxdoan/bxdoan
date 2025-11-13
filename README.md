@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can’t use up creativity.  The more you use, the more you have.
+> Either you run the day, or the day runs you.
 
-> — Maya Angelou —
+> — Jim Rohn —
 
 </div>
 
