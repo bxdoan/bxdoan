@@ -1,8 +1,8 @@
 <div align="center">
 
-> Either you run the day, or the day runs you.
+> The best revenge is massive success.
 
-> — Jim Rohn —
+> — Frank Sinatra —
 
 </div>
 
