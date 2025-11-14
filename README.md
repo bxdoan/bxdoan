@@ -1,8 +1,8 @@
 <div align="center">
 
-> The ticket to the future is always open.
+> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!
 
-> — Vash The Stampede —
+> — Haruhi Fujioka —
 
 </div>
 
