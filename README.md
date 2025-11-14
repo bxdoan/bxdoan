@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best revenge is massive success.
+> The ticket to the future is always open.
 
-> — Frank Sinatra —
+> — Vash The Stampede —
 
 </div>
 
