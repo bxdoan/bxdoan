@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!
+> I refuse to let my fear control me anymore.
 
-> — Haruhi Fujioka —
+> — Maka Albarn —
 
 </div>
 
