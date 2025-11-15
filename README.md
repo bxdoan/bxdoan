@@ -1,8 +1,8 @@
 <div align="center">
 
-> I refuse to let my fear control me anymore.
+> People who can’t throw something important away, can never hope to change anything.
 
-> — Maka Albarn —
+> — Armin Arlelt —
 
 </div>
 
