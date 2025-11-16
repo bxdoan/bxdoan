@@ -1,8 +1,8 @@
 <div align="center">
 
-> People who can’t throw something important away, can never hope to change anything.
+> Life is what we make it, always has been, always will be.
 
-> — Armin Arlelt —
+> — Grandma Moses —
 
 </div>
 
