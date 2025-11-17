@@ -1,8 +1,8 @@
 <div align="center">
 
-> Sometimes it’s necessary to do unnecessary things.
+> It is at the moment of death that humanity has value.
 
-> — Kanade Jinguuji —
+> — Archer —
 
 </div>
 
