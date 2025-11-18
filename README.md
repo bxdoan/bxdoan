@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is at the moment of death that humanity has value.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Archer —
+> — Touko Aozaki —
 
 </div>
 
