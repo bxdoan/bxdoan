@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> People who can’t throw something important away, can never hope to change anything.
 
-> — Touko Aozaki —
+> — Armin Arlelt —
 
 </div>
 
