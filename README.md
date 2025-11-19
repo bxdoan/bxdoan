@@ -1,8 +1,8 @@
 <div align="center">
 
-> People who can’t throw something important away, can never hope to change anything.
+> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.
 
-> — Armin Arlelt —
+> — Gildarts Clive —
 
 </div>
 
