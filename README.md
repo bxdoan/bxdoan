@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only limit to our realization of tomorrow will be our doubts of today.
+> If you want to lift yourself up, lift up someone else.
 
-> — Franklin D. Roosevelt —
+> — Booker T. Washington —
 
 </div>
 
