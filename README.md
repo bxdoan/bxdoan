@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want to lift yourself up, lift up someone else.
+> The only way to do great work is to love what you do.
 
-> — Booker T. Washington —
+> — Steve Jobs —
 
 </div>
 
