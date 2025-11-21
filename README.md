@@ -1,8 +1,8 @@
 <div align="center">
 
-> If There Are Humans Who Can Bring About Change They re Those Who Are Capable Of Abandoning Everything People Who When Required To Surpass Even Monsters Are Capable Of Tossing Aside Their Very Humanity
+> Do you need a reason to not want to lose
 
-> — Armin Arlert —
+> — Shoyo Hinata —
 
 </div>
 
