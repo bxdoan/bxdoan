@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only way to do great work is to love what you do.
+> If There Are Humans Who Can Bring About Change They re Those Who Are Capable Of Abandoning Everything People Who When Required To Surpass Even Monsters Are Capable Of Tossing Aside Their Very Humanity
 
-> — Steve Jobs —
+> — Armin Arlert —
 
 </div>
 
