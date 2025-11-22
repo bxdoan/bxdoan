@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do you need a reason to not want to lose
+> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
 
-> — Shoyo Hinata —
+> — Erica Jong —
 
 </div>
 
