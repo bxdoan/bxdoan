@@ -1,8 +1,8 @@
 <div align="center">
 
-> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
+> We must balance conspicuous consumption with conscious capitalism.
 
-> — Erica Jong —
+> — Kevin Kruse —
 
 </div>
 
