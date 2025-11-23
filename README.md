@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must balance conspicuous consumption with conscious capitalism.
+> If you want your children to turn out well, spend twice as much time with them, and half as much money.
 
-> — Kevin Kruse —
+> — Abigail Van Buren —
 
 </div>
 
