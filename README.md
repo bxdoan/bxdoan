@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want your children to turn out well, spend twice as much time with them, and half as much money.
+> Education costs money.  But then so does ignorance.
 
-> — Abigail Van Buren —
+> — Sir Claus Moser —
 
 </div>
 
