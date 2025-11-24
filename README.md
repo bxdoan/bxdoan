@@ -1,8 +1,8 @@
 <div align="center">
 
-> Education costs money.  But then so does ignorance.
+> Forgetting is like a wound. The wound may heal, but it has already left a scar.
 
-> — Sir Claus Moser —
+> — Monkey D Luffy —
 
 </div>
 
