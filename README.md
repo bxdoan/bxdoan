@@ -1,8 +1,8 @@
 <div align="center">
 
-> Forgetting is like a wound. The wound may heal, but it has already left a scar.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Monkey D Luffy —
+> — Pablo Picasso —
 
 </div>
 
