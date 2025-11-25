@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> Do you need a reason to not want to lose
 
-> — Pablo Picasso —
+> — Shoyo Hinata —
 
 </div>
 
