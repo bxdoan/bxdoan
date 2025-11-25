@@ -1,8 +1,8 @@
 <div align="center">
 
-> Do you need a reason to not want to lose
+> Definiteness of purpose is the starting point of all achievement.
 
-> — Shoyo Hinata —
+> — W. Clement Stone —
 
 </div>
 
