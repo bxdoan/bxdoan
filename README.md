@@ -1,8 +1,8 @@
 <div align="center">
 
-> Definiteness of purpose is the starting point of all achievement.
+> The person who says it cannot be done should not interrupt the person who is doing it.
 
-> — W. Clement Stone —
+> — Chinese Proverb —
 
 </div>
 
