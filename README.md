@@ -1,8 +1,8 @@
 <div align="center">
 
-> The person who says it cannot be done should not interrupt the person who is doing it.
+> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
 
-> — Chinese Proverb —
+> — Seiya Kanie —
 
 </div>
 
