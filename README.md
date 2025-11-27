@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
+> Being weak is nothing to be ashamed of… Staying weak is !!
 
-> — Seiya Kanie —
+> — Fuegoleon Vermillion —
 
 </div>
 
