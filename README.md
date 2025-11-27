@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being weak is nothing to be ashamed of… Staying weak is !!
+> If you re gonna hit it hit it until it breaks
 
-> — Fuegoleon Vermillion —
+> — Tooru Oikawa —
 
 </div>
 
