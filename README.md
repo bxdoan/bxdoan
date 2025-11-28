@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you re gonna hit it hit it until it breaks
+> An excellent leader must be passionate because it’s their duty to keep everyone moving forward.
 
-> — Tooru Oikawa —
+> — Nico Yazawa —
 
 </div>
 
