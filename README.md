@@ -1,8 +1,8 @@
 <div align="center">
 
-> An excellent leader must be passionate because it’s their duty to keep everyone moving forward.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Nico Yazawa —
+> — Pablo Picasso —
 
 </div>
 
