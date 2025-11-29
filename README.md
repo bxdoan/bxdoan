@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> That’s why I can’t make a change. Everything I do is so… Half-assed.
 
-> — Pablo Picasso —
+> — Hiroshi Kido —
 
 </div>
 
