@@ -1,8 +1,8 @@
 <div align="center">
 
-> That’s why I can’t make a change. Everything I do is so… Half-assed.
+> Life is what we make it, always has been, always will be.
 
-> — Hiroshi Kido —
+> — Grandma Moses —
 
 </div>
 
