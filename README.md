@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hard work is worthless for those that don’t believe in themselves.
+> The moment you think of giving up, think of the reason why you held on so long.
 
-> — Naruto Uzumaki —
+> — Natsu Dragneel —
 
 </div>
 
