@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> Hard work is worthless for those that don’t believe in themselves.
 
-> — Grandma Moses —
+> — Naruto Uzumaki —
 
 </div>
 
