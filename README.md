@@ -1,8 +1,8 @@
 <div align="center">
 
-> The moment you think of giving up, think of the reason why you held on so long.
+> Happiness is not something readymade.  It comes from your own actions.
 
-> — Natsu Dragneel —
+> — Dalai Lama —
 
 </div>
 
