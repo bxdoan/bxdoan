@@ -1,8 +1,8 @@
 <div align="center">
 
-> There’s no shame in falling down! True shame is to not stand up again!
+> First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end.
 
-> — Shintar Midorima —
+> — Aristotle —
 
 </div>
 
