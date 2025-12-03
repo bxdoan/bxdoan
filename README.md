@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not final, failure is not fatal: It is the courage to continue that counts.
+> It is at the moment of death that humanity has value.
 
-> — Winston Churchill —
+> — Archer —
 
 </div>
 
