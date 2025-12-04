@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is at the moment of death that humanity has value.
+> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
 
-> — Archer —
+> — Might Guy —
 
 </div>
 
