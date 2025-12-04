@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
+> Definiteness of purpose is the starting point of all achievement.
 
-> — Might Guy —
+> — W. Clement Stone —
 
 </div>
 
