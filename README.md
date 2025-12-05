@@ -1,8 +1,8 @@
 <div align="center">
 
-> Definiteness of purpose is the starting point of all achievement.
+> Strive not to be a success, but rather to be of value.
 
-> — W. Clement Stone —
+> — Albert Einstein —
 
 </div>
 
