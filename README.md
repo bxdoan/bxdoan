@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you don’t like your destiny, don’t accept it.
+> It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.
 
-> — Naruto Uzumaki —
+> — Mae Jemison —
 
 </div>
 
