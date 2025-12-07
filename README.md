@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.
+> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?
 
-> — Himura Kenshin —
+> — Juuzou Suzuya —
 
 </div>
 
