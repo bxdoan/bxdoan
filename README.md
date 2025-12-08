@@ -1,8 +1,8 @@
 <div align="center">
 
-> Remember no one can make you feel inferior without your consent.
+> I have learned over the years that when one’s mind is made up, this diminishes fear.
 
-> — Eleanor Roosevelt —
+> — Rosa Parks —
 
 </div>
 
