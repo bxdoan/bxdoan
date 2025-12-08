@@ -1,8 +1,8 @@
 <div align="center">
 
-> I have learned over the years that when one’s mind is made up, this diminishes fear.
+> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 
-> — Rosa Parks —
+> — Albert Schweitzer —
 
 </div>
 
