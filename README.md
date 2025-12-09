@@ -1,8 +1,8 @@
 <div align="center">
 
-> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
+> The best time to plant a tree was 20 years ago. The second best time is now.
 
-> — Erza Scarlet —
+> — Chinese Proverb —
 
 </div>
 
