@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
 
-> — Albert Schweitzer —
+> — Erza Scarlet —
 
 </div>
 
