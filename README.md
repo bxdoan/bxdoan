@@ -1,8 +1,8 @@
 <div align="center">
 
-> The best time to plant a tree was 20 years ago. The second best time is now.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Chinese Proverb —
+> — Allen Walker —
 
 </div>
 
