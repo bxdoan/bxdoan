@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
 
-> — Allen Walker —
+> — Hatsu Kominato —
 
 </div>
 
