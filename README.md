@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re gonna insist on gambling and then complain when you lose, you had better work on your game.
+> Life is what happens to you while you’re busy making other plans.
 
-> — Hatsu Kominato —
+> — John Lennon —
 
 </div>
 
