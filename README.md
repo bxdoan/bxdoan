@@ -1,8 +1,8 @@
 <div align="center">
 
-> Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference.
+> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
 
-> — Robert Frost —
+> — Yato —
 
 </div>
 
