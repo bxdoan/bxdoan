@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference.
 
-> — Zig Ziglar —
+> — Robert Frost —
 
 </div>
 
