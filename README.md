@@ -1,8 +1,8 @@
 <div align="center">
 
-> To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.
+> Whatever the mind of man can conceive and believe, it can achieve.
 
-> — Matsumoto Rangiku —
+> — Napoleon Hill —
 
 </div>
 
