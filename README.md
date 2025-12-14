@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever the mind of man can conceive and believe, it can achieve.
+> If you really want to be strong… Stop caring about what your surrounding thinks of you!
 
-> — Napoleon Hill —
+> — Saitama —
 
 </div>
 
