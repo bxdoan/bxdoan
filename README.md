@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you really want to be strong… Stop caring about what your surrounding thinks of you!
+> When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey.
 
-> — Saitama —
+> — Hinata Miyake —
 
 </div>
 
