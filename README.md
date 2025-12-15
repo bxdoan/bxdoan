@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey.
+> No matter how hard or impossible it is, never lose sight of your goal.
 
-> — Hinata Miyake —
+> — Monkey D Luffy —
 
 </div>
 
