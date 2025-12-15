@@ -1,8 +1,8 @@
 <div align="center">
 
-> No matter how hard or impossible it is, never lose sight of your goal.
+> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
 
-> — Monkey D Luffy —
+> — Junichirou Kagami —
 
 </div>
 
