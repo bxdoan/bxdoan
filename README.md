@@ -1,8 +1,8 @@
 <div align="center">
 
-> If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward
+> Reject common sense to make the impossible possible.
 
-> — Tobio Kageyama —
+> — Simon —
 
 </div>
 
