@@ -1,8 +1,8 @@
 <div align="center">
 
-> Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes.
+> If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward
 
-> — Junichirou Kagami —
+> — Tobio Kageyama —
 
 </div>
 
