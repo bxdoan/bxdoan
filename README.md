@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t beg for things. Do it yourself, or else you won’t get anything.
+> Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end.
 
-> — Renton Thurston —
+> — Clare —
 
 </div>
 
