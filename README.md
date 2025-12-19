@@ -1,8 +1,8 @@
 <div align="center">
 
-> Challenges are what make life interesting and overcoming them is what makes life meaningful.
+> All we can do is live until the day we die. Control what we can…and fly free.
 
-> — Joshua J. Marine —
+> — Deneil Young —
 
 </div>
 
