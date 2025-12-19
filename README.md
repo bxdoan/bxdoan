@@ -1,8 +1,8 @@
 <div align="center">
 
-> If You Win You Live If You Lose You Die If You Don t Fight You Can t Win
+> Challenges are what make life interesting and overcoming them is what makes life meaningful.
 
-> — Eren —
+> — Joshua J. Marine —
 
 </div>
 
