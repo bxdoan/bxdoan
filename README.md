@@ -1,8 +1,8 @@
 <div align="center">
 
-> All we can do is live until the day we die. Control what we can…and fly free.
+> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
 
-> — Deneil Young —
+> — Zig Ziglar —
 
 </div>
 
