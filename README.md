@@ -1,8 +1,8 @@
 <div align="center">
 
-> People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily.
+> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
 
-> — Zig Ziglar —
+> — Yato —
 
 </div>
 
