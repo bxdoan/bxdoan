@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
+> Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that.
 
-> — Yato —
+> — Keima Katsuragi —
 
 </div>
 
