@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that.
+> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 
-> — Keima Katsuragi —
+> — Albert Schweitzer —
 
 </div>
 
