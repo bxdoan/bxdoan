@@ -1,8 +1,8 @@
 <div align="center">
 
-> Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+> Don’t beg for things. Do it yourself, or else you won’t get anything.
 
-> — Albert Schweitzer —
+> — Renton Thurston —
 
 </div>
 
