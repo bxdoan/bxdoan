@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t beg for things. Do it yourself, or else you won’t get anything.
+> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
 
-> — Renton Thurston —
+> — Might Guy —
 
 </div>
 
