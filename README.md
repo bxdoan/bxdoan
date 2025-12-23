@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
+> If the wind will not serve, take to the oars.
 
-> — Sheryl Sandberg —
+> — Latin Proverb —
 
 </div>
 
