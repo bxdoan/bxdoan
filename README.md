@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it.
+> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
 
-> — Might Guy —
+> — Sheryl Sandberg —
 
 </div>
 
