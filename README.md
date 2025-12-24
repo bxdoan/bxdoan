@@ -1,8 +1,8 @@
 <div align="center">
 
-> If the wind will not serve, take to the oars.
+> Fall seven times and stand up eight.
 
-> — Latin Proverb —
+> — Japanese Proverb —
 
 </div>
 
