@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fall seven times and stand up eight.
+> You can never cross the ocean until you have the courage to lose sight of the shore.
 
-> — Japanese Proverb —
+> — Christopher Columbus —
 
 </div>
 
