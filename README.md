@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can never cross the ocean until you have the courage to lose sight of the shore.
+> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
 
-> — Christopher Columbus —
+> — Sheryl Sandberg —
 
 </div>
 
