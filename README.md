@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
+> If you can dream it, you can achieve it.
 
-> — Sheryl Sandberg —
+> — Zig Ziglar —
 
 </div>
 
