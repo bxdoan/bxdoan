@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can dream it, you can achieve it.
+> Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it.
 
-> — Zig Ziglar —
+> — Yato —
 
 </div>
 
