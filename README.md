@@ -1,8 +1,8 @@
 <div align="center">
 
-> Reject common sense to make the impossible possible.
+> Being the best decoy ever is as cool as being the ace
 
-> — Simon —
+> — Tobio Kageyama —
 
 </div>
 
