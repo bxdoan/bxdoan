@@ -1,8 +1,8 @@
 <div align="center">
 
-> Being the best decoy ever is as cool as being the ace
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Tobio Kageyama —
+> — Touko Aozaki —
 
 </div>
 
