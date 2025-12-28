@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> The person who says it cannot be done should not interrupt the person who is doing it.
 
-> — Touko Aozaki —
+> — Chinese Proverb —
 
 </div>
 
