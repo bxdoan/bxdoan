@@ -1,8 +1,8 @@
 <div align="center">
 
-> The person who says it cannot be done should not interrupt the person who is doing it.
+> Forgetting is like a wound. The wound may heal, but it has already left a scar.
 
-> — Chinese Proverb —
+> — Monkey D Luffy —
 
 </div>
 
