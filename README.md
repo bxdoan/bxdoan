@@ -1,8 +1,8 @@
 <div align="center">
 
-> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
+> If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.
 
-> — Maya Angelou —
+> — Oprah Winfrey —
 
 </div>
 
