@@ -1,8 +1,8 @@
 <div align="center">
 
-> Forgetting is like a wound. The wound may heal, but it has already left a scar.
+> I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.
 
-> — Monkey D Luffy —
+> — Maya Angelou —
 
 </div>
 
