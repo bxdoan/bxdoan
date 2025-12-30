@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.
+> It’s just pathetic to give up on something before you even give it a shot.
 
-> — Oprah Winfrey —
+> — Reiko Mikami —
 
 </div>
 
