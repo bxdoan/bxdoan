@@ -1,8 +1,8 @@
 <div align="center">
 
-> It’s just pathetic to give up on something before you even give it a shot.
+> You can die anytime, but living takes true courage.
 
-> — Reiko Mikami —
+> — Kenshin Himura —
 
 </div>
 
