@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only way to do great work is to love what you do.
+> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
 
-> — Steve Jobs —
+> — Erma Bombeck —
 
 </div>
 
