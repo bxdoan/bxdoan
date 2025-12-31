@@ -1,8 +1,8 @@
 <div align="center">
 
-> You can die anytime, but living takes true courage.
+> The only way to do great work is to love what you do.
 
-> — Kenshin Himura —
+> — Steve Jobs —
 
 </div>
 
