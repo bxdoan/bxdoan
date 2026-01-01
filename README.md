@@ -1,8 +1,8 @@
 <div align="center">
 
-> People become stronger because they have memories they can’t forget.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Tsunade —
+> — Touko Aozaki —
 
 </div>
 
