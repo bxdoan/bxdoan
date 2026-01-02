@@ -1,8 +1,8 @@
 <div align="center">
 
-> Vision is not what your eyes see, but an image that your brain comprehends.
+> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
 
-> — Touko Aozaki —
+> — Aristotle —
 
 </div>
 
