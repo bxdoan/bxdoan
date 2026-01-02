@@ -1,8 +1,8 @@
 <div align="center">
 
-> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
+> Life isn’t about getting and having, it’s about giving and being.
 
-> — Aristotle —
+> — Kevin Kruse —
 
 </div>
 
