@@ -1,8 +1,8 @@
 <div align="center">
 
-> I attribute my success to this: I never gave or took any excuse.
+> Life is what we make it, always has been, always will be.
 
-> — Florence Nightingale —
+> — Grandma Moses —
 
 </div>
 
