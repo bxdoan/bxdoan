@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life isn’t about getting and having, it’s about giving and being.
+> I attribute my success to this: I never gave or took any excuse.
 
-> — Kevin Kruse —
+> — Florence Nightingale —
 
 </div>
 
