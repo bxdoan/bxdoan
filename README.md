@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> A dropout will beat a genius through hard work.
 
-> — Grandma Moses —
+> — Rock Lee —
 
 </div>
 
