@@ -1,8 +1,8 @@
 <div align="center">
 
-> A dropout will beat a genius through hard work.
+> The person who says it cannot be done should not interrupt the person who is doing it.
 
-> — Rock Lee —
+> — Chinese Proverb —
 
 </div>
 
