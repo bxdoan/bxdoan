@@ -1,8 +1,8 @@
 <div align="center">
 
-> Forgetting is like a wound. The wound may heal, but it has already left a scar.
+> Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.
 
-> — Monkey D Luffy —
+> — Hinata Miyake —
 
 </div>
 
