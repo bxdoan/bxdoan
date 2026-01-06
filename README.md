@@ -1,8 +1,8 @@
 <div align="center">
 
-> Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.
+> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
 
-> — Hinata Miyake —
+> — Erza Scarlet —
 
 </div>
 
