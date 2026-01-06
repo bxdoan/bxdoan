@@ -1,8 +1,8 @@
 <div align="center">
 
-> Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living.
+> If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.
 
-> — Erza Scarlet —
+> — Oprah Winfrey —
 
 </div>
 
