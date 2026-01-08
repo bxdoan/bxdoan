@@ -1,8 +1,8 @@
 <div align="center">
 
-> People who can’t throw something important away, can never hope to change anything.
+> Reject common sense to make the impossible possible.
 
-> — Armin Arlelt —
+> — Simon —
 
 </div>
 
