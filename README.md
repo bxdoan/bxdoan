@@ -13,7 +13,7 @@ Hi, I'm Doan. I'm current open to work and find a full time remote job. Here is 
 
 ![image](https://placekeanu.com/500/300?)
 
-![bxdoan's GitHub stats](https://github-readme-stats.vercel.app/api?username=bxdoan&show_icons=true&theme=radical)
+![bxdoan's GitHub stats]([https://github-readme-stats-fast.vercel.app/api?username=bxdoan)
 
 </div>
 
