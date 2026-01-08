@@ -1,8 +1,8 @@
 <div align="center">
 
-> Protecting someone means giving them a place to belong. Giving them a place where they can be happy.
+> People who can’t throw something important away, can never hope to change anything.
 
-> — Princess Lenessia —
+> — Armin Arlelt —
 
 </div>
 
