@@ -1,8 +1,8 @@
 <div align="center">
 
-> You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words
+> It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight
 
-> — Ymir —
+> — Eren —
 
 </div>
 
