@@ -1,8 +1,8 @@
 <div align="center">
 
-> I have learned over the years that when one’s mind is made up, this diminishes fear.
+> Life is what happens to you while you’re busy making other plans.
 
-> — Rosa Parks —
+> — John Lennon —
 
 </div>
 
