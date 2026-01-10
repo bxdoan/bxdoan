@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only way to do great work is to love what you do.
+> The only person you are destined to become is the person you decide to be.
 
-> — Steve Jobs —
+> — Ralph Waldo Emerson —
 
 </div>
 
