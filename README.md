@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what happens to you while you’re busy making other plans.
+> The only way to do great work is to love what you do.
 
-> — John Lennon —
+> — Steve Jobs —
 
 </div>
 
