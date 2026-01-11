@@ -1,8 +1,8 @@
 <div align="center">
 
-> The only person you are destined to become is the person you decide to be.
+> A person who never made a mistake never tried anything new.
 
-> — Ralph Waldo Emerson —
+> —  Albert Einstein —
 
 </div>
 
