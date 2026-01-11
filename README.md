@@ -1,8 +1,8 @@
 <div align="center">
 
-> A person who never made a mistake never tried anything new.
+> You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane
 
-> —  Albert Einstein —
+> — Hange Zoë —
 
 </div>
 
