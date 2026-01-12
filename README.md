@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every strike brings me closer to the next home run.
+> No matter how hard or impossible it is, never lose sight of your goal.
 
-> — Babe Ruth —
+> — Monkey D Luffy —
 
 </div>
 
