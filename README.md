@@ -1,8 +1,8 @@
 <div align="center">
 
-> When you lose sight of your path, listen for the destination in your heart.
+> Our lives begin to end the day we become silent about things that matter.
 
-> — Allen Walker —
+> — Martin Luther King Jr. —
 
 </div>
 
