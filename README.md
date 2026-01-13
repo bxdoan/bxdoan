@@ -1,8 +1,8 @@
 <div align="center">
 
-> No matter how hard or impossible it is, never lose sight of your goal.
+> When you lose sight of your path, listen for the destination in your heart.
 
-> — Monkey D Luffy —
+> — Allen Walker —
 
 </div>
 
