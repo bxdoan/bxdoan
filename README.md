@@ -1,8 +1,8 @@
 <div align="center">
 
-> Our lives begin to end the day we become silent about things that matter.
+> Vision is not what your eyes see, but an image that your brain comprehends.
 
-> — Martin Luther King Jr. —
+> — Touko Aozaki —
 
 </div>
 
