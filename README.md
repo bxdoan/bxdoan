@@ -1,8 +1,8 @@
 <div align="center">
 
-> Today might be the chance to grasp the chance to let your talent bloom
+> If you can’t find a reason to fight, then you shouldn’t be fighting.
 
-> — Tooru Oikawa —
+> — Akame —
 
 </div>
 
