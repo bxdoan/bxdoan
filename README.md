@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you can’t find a reason to fight, then you shouldn’t be fighting.
+> You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words
 
-> — Akame —
+> — Ymir —
 
 </div>
 
