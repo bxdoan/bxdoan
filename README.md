@@ -1,8 +1,8 @@
 <div align="center">
 
-> You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Ymir —
+> — Alibaba Saluja —
 
 </div>
 
