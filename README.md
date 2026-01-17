@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whether you think you can or you think you can’t, you’re right.
+> In order to succeed, your desire for success should be greater than your fear of failure.
 
-> — Henry Ford —
+> — Bill Cosby —
 
 </div>
 
