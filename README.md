@@ -1,8 +1,8 @@
 <div align="center">
 
-> In order to succeed, your desire for success should be greater than your fear of failure.
+> Everything you’ve ever wanted is on the other side of fear.
 
-> — Bill Cosby —
+> — George Addair —
 
 </div>
 
