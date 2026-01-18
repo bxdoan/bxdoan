@@ -1,8 +1,8 @@
 <div align="center">
 
-> Everything you’ve ever wanted is on the other side of fear.
+> There are no traffic jams along the extra mile.
 
-> — George Addair —
+> — Roger Staubach —
 
 </div>
 
