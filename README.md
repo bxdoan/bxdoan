@@ -1,8 +1,8 @@
 <div align="center">
 
-> Every child is an artist.  The problem is how to remain an artist once he grows up.
+> Definiteness of purpose is the starting point of all achievement.
 
-> — Pablo Picasso —
+> — W. Clement Stone —
 
 </div>
 
