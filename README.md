@@ -1,8 +1,8 @@
 <div align="center">
 
-> There are no traffic jams along the extra mile.
+> Every child is an artist.  The problem is how to remain an artist once he grows up.
 
-> — Roger Staubach —
+> — Pablo Picasso —
 
 </div>
 
