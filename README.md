@@ -1,8 +1,8 @@
 <div align="center">
 
-> A truly rich man is one whose children run into his arms when his hands are empty.
+> You take your life in your own hands, and what happens? A terrible thing, no one to blame.
 
-> — Unknown —
+> — Erica Jong —
 
 </div>
 
