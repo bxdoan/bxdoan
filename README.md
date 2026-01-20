@@ -1,8 +1,8 @@
 <div align="center">
 
-> Definiteness of purpose is the starting point of all achievement.
+> A truly rich man is one whose children run into his arms when his hands are empty.
 
-> — W. Clement Stone —
+> — Unknown —
 
 </div>
 
