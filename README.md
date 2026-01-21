@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life shrinks or expands in proportion to one’s courage.
+> Fools who don’t respect the past are likely to repeat it.
 
-> — Anais Nin —
+> — Nico Robin —
 
 </div>
 
