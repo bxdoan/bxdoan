@@ -1,8 +1,8 @@
 <div align="center">
 
-> Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.
+> People, who can’t throw something important away, can never hope to change anything.
 
-> — Jamie Paolinetti —
+> — Armin Arlert —
 
 </div>
 
