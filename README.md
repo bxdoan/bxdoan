@@ -1,8 +1,8 @@
 <div align="center">
 
-> Fools who don’t respect the past are likely to repeat it.
+> Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.
 
-> — Nico Robin —
+> — Jamie Paolinetti —
 
 </div>
 
