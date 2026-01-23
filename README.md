@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whatever you do, enjoy it to the fullest. That is the secret of life.
+> Life is what we make it, always has been, always will be.
 
-> — Rider —
+> — Grandma Moses —
 
 </div>
 
