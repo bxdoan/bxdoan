@@ -1,8 +1,8 @@
 <div align="center">
 
-> People, who can’t throw something important away, can never hope to change anything.
+> Whatever you do, enjoy it to the fullest. That is the secret of life.
 
-> — Armin Arlert —
+> — Rider —
 
 </div>
 
