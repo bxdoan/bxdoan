@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life is what we make it, always has been, always will be.
+> We can’t waste time worrying about the what if’s.
 
-> — Grandma Moses —
+> — Ichigo Kurosaki —
 
 </div>
 
