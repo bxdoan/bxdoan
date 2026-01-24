@@ -1,8 +1,8 @@
 <div align="center">
 
-> We can’t waste time worrying about the what if’s.
+> Hard work is worthless for those that don’t believe in themselves.
 
-> — Ichigo Kurosaki —
+> — Naruto Uzumaki —
 
 </div>
 
