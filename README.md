@@ -1,8 +1,8 @@
 <div align="center">
 
-> Hard work is worthless for those that don’t believe in themselves.
+> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
 
-> — Naruto Uzumaki —
+> — Erma Bombeck —
 
 </div>
 
