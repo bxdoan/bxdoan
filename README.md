@@ -1,8 +1,8 @@
 <div align="center">
 
-> When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me.
+> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
 
-> — Erma Bombeck —
+> — Yuuji Kazami —
 
 </div>
 
