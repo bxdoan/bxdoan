@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?
+> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
 
-> — Yuuji Kazami —
+> — Seiya Kanie —
 
 </div>
 
