@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you wanna make people dream, you’ve gotta start by believing in that dream yourself!
+> A truly rich man is one whose children run into his arms when his hands are empty.
 
-> — Seiya Kanie —
+> — Unknown —
 
 </div>
 
