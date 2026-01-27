@@ -1,8 +1,8 @@
 <div align="center">
 
-> A truly rich man is one whose children run into his arms when his hands are empty.
+> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
 
-> — Unknown —
+> — Aristotle —
 
 </div>
 
