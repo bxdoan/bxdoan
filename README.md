@@ -1,8 +1,8 @@
 <div align="center">
 
-> There is only one way to avoid criticism: do nothing, say nothing, and be nothing.
+> A dropout will beat a genius through hard work.
 
-> — Aristotle —
+> — Rock Lee —
 
 </div>
 
