@@ -1,8 +1,8 @@
 <div align="center">
 
-> A dropout will beat a genius through hard work.
+> Education costs money.  But then so does ignorance.
 
-> — Rock Lee —
+> — Sir Claus Moser —
 
 </div>
 
