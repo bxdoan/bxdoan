@@ -1,8 +1,8 @@
 <div align="center">
 
-> We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today!
+> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
 
-> — Natsu Dragneel —
+> — Alibaba Saluja —
 
 </div>
 
