@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you want your children to turn out well, spend twice as much time with them, and half as much money.
+> We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today!
 
-> — Abigail Van Buren —
+> — Natsu Dragneel —
 
 </div>
 
