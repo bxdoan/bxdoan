@@ -1,8 +1,8 @@
 <div align="center">
 
-> If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.
+> Whether you think you can or you think you can’t, you’re right.
 
-> — Alibaba Saluja —
+> — Henry Ford —
 
 </div>
 
