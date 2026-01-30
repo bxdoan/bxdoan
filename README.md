@@ -1,8 +1,8 @@
 <div align="center">
 
-> Whether you think you can or you think you can’t, you’re right.
+> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
 
-> — Henry Ford —
+> — Tobio Kageyama —
 
 </div>
 
