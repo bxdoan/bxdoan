@@ -1,8 +1,8 @@
 <div align="center">
 
-> The last ones standing are the victors Only the strongest If you want to be the last one standing become strong
+> Life shrinks or expands in proportion to one’s courage.
 
-> — Tobio Kageyama —
+> — Anais Nin —
 
 </div>
 
