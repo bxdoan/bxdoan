@@ -1,8 +1,8 @@
 <div align="center">
 
-> Life shrinks or expands in proportion to one’s courage.
+> Dreaming, after all, is a form of planning.
 
-> — Anais Nin —
+> — Gloria Steinem —
 
 </div>
 
