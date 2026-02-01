@@ -1,8 +1,8 @@
 <div align="center">
 
-> It is never too late to be what you might have been.
+> The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.
 
-> — George Eliot —
+> — Roy Mustang —
 
 </div>
 
