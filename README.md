@@ -1,8 +1,8 @@
 <div align="center">
 
-> The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.
+> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
 
-> — Roy Mustang —
+> — Marie Curie —
 
 </div>
 
