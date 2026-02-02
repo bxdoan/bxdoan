@@ -1,8 +1,8 @@
 <div align="center">
 
-> We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
+> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.
 
-> — Marie Curie —
+> — Jesse Owens —
 
 </div>
 
