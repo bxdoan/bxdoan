@@ -1,8 +1,8 @@
 <div align="center">
 
-> If you do what you’ve always done, you’ll get what you’ve always gotten.
+> Believe you can and you're halfway there.
 
-> — Tony Robbins —
+> — Theodore Roosevelt —
 
 </div>
 
