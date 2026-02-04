@@ -1,8 +1,8 @@
 <div align="center">
 
-> Don’t beg for things. Do it yourself, or else you won’t get anything.
+> 
 
-> — Renton Thurston —
+> —  —
 
 </div>
 
