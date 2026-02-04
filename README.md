@@ -1,8 +1,8 @@
 <div align="center">
 
-> Believe you can and you're halfway there.
+> Don’t beg for things. Do it yourself, or else you won’t get anything.
 
-> — Theodore Roosevelt —
+> — Renton Thurston —
 
 </div>
 
